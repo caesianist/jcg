@@ -163,14 +163,6 @@ plugins:
     layout:
       position: right
       priority: 10
-  - source: github:quartz-community/false
-    enabled: true
-    layout:
-      position: left
-      priority: 20
-      group: toolbar
-      groupOptions:
-        grow: true
   - source: github:quartz-community/backlinks
     enabled: false
     layout:
