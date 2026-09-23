@@ -1,0 +1,1 @@
+Near the tomb of [[Rachel]] near Bethlehem in the territory of [[Benjamin]].

@@ -1,0 +1,1 @@
+City in the lower Zagros Mountains about 250 km (160 mi) east of the [[Tigris]], between the Karkheh and Dez Rivers in Iran.

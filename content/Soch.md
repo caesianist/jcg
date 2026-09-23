@@ -1,0 +1,1 @@
+Also known as [[Essoch]]. Heavenly entity invoked by [[Shem]].

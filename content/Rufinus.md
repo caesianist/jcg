@@ -1,0 +1,1 @@
+Bishop of Byzantium from 284 to 293. Succeeded by [[Probus]]. 

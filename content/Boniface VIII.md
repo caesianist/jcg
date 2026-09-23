@@ -1,0 +1,1 @@
+Head of the Catholic Church and leader of the Papal States from 24 December 1294 until his death in 1303. Succeeded by [[Benedict XI]]. 

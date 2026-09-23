@@ -1,0 +1,1 @@
+Fifteenth ecumenical council of the Catholic Church and met between 1311 and 1312 in Vienne, France. Convoked and presided over by [[Clement V]]. The next council was the [[Council of Constance]].

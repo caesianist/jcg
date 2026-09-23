@@ -1,0 +1,1 @@
+A city conquered by [[Nimrod]] in [[Shinar]].

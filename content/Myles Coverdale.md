@@ -1,0 +1,1 @@
+Helped finish the translation of [[William Tyndale]] for the Bible, briefly was also the bishop of Exter from 1551 to 1553.

@@ -1,0 +1,1 @@
+A place of uncertain identification near [[Gibeah]] near the tribe of [[Benjamin]].

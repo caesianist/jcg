@@ -1,0 +1,1 @@
+Bishop of Rome from December 384 to his death on 26 November 399. Succeeded by [[Anastasius I]].

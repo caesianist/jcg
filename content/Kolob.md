@@ -1,0 +1,1 @@
+A star described as the heavenly body nearest to the throne of God. 

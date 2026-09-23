@@ -1,0 +1,1 @@
+Area east to the sea of Galilee.

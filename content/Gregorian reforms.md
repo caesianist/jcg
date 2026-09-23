@@ -1,0 +1,1 @@
+The Gregorian reforms were a series of reforms initiated by Pope [[Gregory VII]] and the circle he formed in the papal curia, c. 1050–1080, which dealt with the moral integrity and independence of the clergy. The reform is largely encoded in the document [[Dictatus papae]].

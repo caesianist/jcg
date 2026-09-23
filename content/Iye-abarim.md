@@ -1,0 +1,1 @@
+Camping place for the [[Israelites]] that was near [[Oboth]], bordering [[Moab]].

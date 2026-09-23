@@ -1,0 +1,1 @@
+Loyal supporter of King [[David]] who opposed [[Adonijah]]’s attempt to seize the throne.

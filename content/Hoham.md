@@ -1,0 +1,1 @@
+King of [[Hebron]] during [[Joshua]]'s conquest.

@@ -1,0 +1,1 @@
+Bishop of Byzantium for six years (211 – 217). Succeeded by [[Cyriacus I]].

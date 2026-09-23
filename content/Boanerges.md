@@ -1,0 +1,1 @@
+Name meaning "Sons of Thunder," given by [[Jesus]] to the apostles [[James]] and [[John]], the sons of [[Zebedee]].

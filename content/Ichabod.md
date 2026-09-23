@@ -1,0 +1,1 @@
+Son of [[Phinehas]], brother of [[Ahitub]].

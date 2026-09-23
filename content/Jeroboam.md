@@ -1,0 +1,1 @@
+Son of [[Nebat]], the first king of the northern Kingdom of Israel following a revolt of the ten tribes against [[Rehoboam]] that put an end to the United Monarchy. Can also be used to refer to [[Jeroboam II]].

@@ -1,0 +1,1 @@
+A city of [[Moab]], near [[Medeba]].

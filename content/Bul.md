@@ -1,0 +1,1 @@
+Eighth month of the ancient Hebrew calendar, corresponding roughly to the modern months of October and November. The name is thought to be derived from a root meaning "produce" or "rain".

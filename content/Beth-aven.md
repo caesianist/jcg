@@ -1,0 +1,1 @@
+Near [[Ai]] and [[Bethel]].

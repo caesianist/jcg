@@ -1,0 +1,1 @@
+The Third Council of the Lateran met in Rome in March 1179. Pope [[Alexander III]] presided and 302 bishops attended. The Catholic Church regards it as the eleventh ecumenical council. After this was the [[Fourth Council of the Lateran]].

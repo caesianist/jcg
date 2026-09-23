@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 6 October 1689 to his death in February 1691. Succeeded by [[Innocent XII]].

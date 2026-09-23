@@ -1,0 +1,1 @@
+The founder and first king of the Neo-Babylonian Empire, ruling from his coronation as king of Babylon in 626 BC to his death in 605 BC, succeeded by his son [[Nebuchadnezzar II]].

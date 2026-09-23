@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from January 821 to 21 January 837. Succeeded by [[John VII (Constantinople)]].

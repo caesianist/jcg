@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople during the period 1822–1824. Succeeded by [[Chrysanthus]].

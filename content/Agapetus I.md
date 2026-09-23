@@ -1,0 +1,1 @@
+Bishop of Rome from 13 May 535 to his death on 22 April 536. Succeeded by [[Silverius]].

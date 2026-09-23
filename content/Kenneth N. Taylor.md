@@ -1,0 +1,1 @@
+American publisher and author, better known as the creator of [[The Living Bible]]. Born on May 8th, 1917, and died on June 10th, 2005.

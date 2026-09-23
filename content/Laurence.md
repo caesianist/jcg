@@ -1,0 +1,1 @@
+Bishop of Byzantium for eleven years and six months (154 – 166 AD), succeeded by [[Alypius]].

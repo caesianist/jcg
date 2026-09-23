@@ -1,0 +1,1 @@
+Situated in the region of Upper Galilee, near the modern-day border between Israel and Lebanon. 

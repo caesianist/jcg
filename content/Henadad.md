@@ -1,0 +1,1 @@
+Member of [[Levi]], the name means "favor of Hadad" or "grace of Hadad," with [[Hadad]] being a name associated with a storm and fertility god in ancient Near Eastern cultures. 

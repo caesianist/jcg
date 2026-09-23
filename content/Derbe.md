@@ -1,0 +1,1 @@
+City of Galatia in Asia Minor, and later of [[Lycaonia]].

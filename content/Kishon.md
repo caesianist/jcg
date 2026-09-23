@@ -1,0 +1,1 @@
+A river in northern Israel flowing the [[Jezreel]] valley. The victory of the [[Israelites]] over the [[Canaanites]]' army led by [[Sisera]] was held here. After the confrontation between the prophet [[Elijah]] and the prophets of idol on Mount [[Carmel]], the prophets of the idol were brought to the Kishon river and executed.

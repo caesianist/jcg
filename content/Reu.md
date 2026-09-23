@@ -1,0 +1,1 @@
+Father of [[Serug]], son of [[Peleg]].

@@ -1,0 +1,1 @@
+A pharaoh of Egypt who sacked Jerusalem in the 10th century BC. He is usually identified with the pharaoh [[Shoshenq I]].

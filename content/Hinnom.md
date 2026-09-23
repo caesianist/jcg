@@ -1,0 +1,1 @@
+Also known as [[Gehenna]]. Situated to the south and southwest of Jerusalem. 

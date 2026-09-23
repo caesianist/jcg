@@ -1,0 +1,1 @@
+Christian leader who knew [[Paul]], from [[Laodicea]].

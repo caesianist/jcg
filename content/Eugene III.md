@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 15 February 1145 to his death in 1153. In response to the fall of Edessa to the Muslims in 1144, Eugene proclaimed the [[Second Crusade]]. Succeeded by [[Anastasius IV]].

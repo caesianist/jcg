@@ -1,0 +1,1 @@
+Second month of the ancient Hebrew calendar, corresponding roughly to the modern months of April and May. 

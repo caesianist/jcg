@@ -1,0 +1,1 @@
+Location on the route to Samaria.

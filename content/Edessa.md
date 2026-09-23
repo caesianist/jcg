@@ -1,0 +1,1 @@
+Ancient city (polis) in Upper Mesopotamia, in what is now Urfa or Şanlıurfa, Turkey. It was founded during the Hellenistic period around 290 BC.

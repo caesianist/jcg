@@ -1,0 +1,1 @@
+The deep abyss that is used as a dungeon of torment and suffering for the wicked and as the prison for the Titans. Tartarus is the place where, according to Plato's Gorgias (c. 400 BC), souls are judged after death and where the wicked received divine punishment. Also known as [[Tartaros]].

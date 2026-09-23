@@ -1,0 +1,1 @@
+Son of [[Herod Agrippa]]. The last ruler from the Herodian dynasty, reigning over territories outside of Judea as a Roman client. Agrippa II fled Jerusalem in 66 AD, fearing the Jewish uprising, and he supported the Roman side in the First Jewish–Roman War.

@@ -1,0 +1,1 @@
+Son of [[Uzzi]], father of [[Michael]], [[Obadiah]], [[Joel]] and [[Ishiah]].

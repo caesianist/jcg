@@ -1,0 +1,1 @@
+Located in [[Moab]], later allotted to the [[Reubenites]].

@@ -1,0 +1,1 @@
+Area king [[Solomon]] built for the deity [[Astarte]].

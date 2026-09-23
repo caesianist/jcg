@@ -1,0 +1,1 @@
+Seventh power in [[Apocryphon of John]], has a face of flaming fire.

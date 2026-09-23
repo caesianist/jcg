@@ -1,0 +1,1 @@
+Hebrew form of [[Jacob]], but in texts such as [[Gospel of Thomas]] it says "Yaakov the just" which more likely in these contexts refers to [[James the Just]].

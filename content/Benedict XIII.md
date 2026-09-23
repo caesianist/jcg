@@ -1,0 +1,1 @@
+Head of the Catholic Church and leader of the Papal States from 29 May 1724 to his death in February 1730. Succeeded by [[Clement XII]].

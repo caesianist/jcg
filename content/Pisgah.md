@@ -1,0 +1,1 @@
+Station of the [[Israelites]], a boundary of the country assigned to the [[Reubenites]] and [[Gadites]].

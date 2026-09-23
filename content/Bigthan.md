@@ -1,0 +1,1 @@
+One of the eunuchs who served in the court of King [[Ahasuerus]].

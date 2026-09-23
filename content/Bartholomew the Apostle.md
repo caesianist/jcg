@@ -1,0 +1,1 @@
+One of the twelve apostles of [[Jesus]]. Most scholars today identify Bartholomew as [[Nathanael]].

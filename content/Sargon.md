@@ -1,0 +1,1 @@
+The king of the Neo-Assyrian Empire from 722 BC to his death in battle in 705. Most likely the son of [[Tiglath-pileser]].

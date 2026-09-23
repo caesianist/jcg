@@ -1,0 +1,1 @@
+Mentioned in [[Genesis 2]]. Was the oldest son of [[Ham]] and a grandson of [[Noah]]. He was the brother of [[Put]] and [[Canaan]], father of [[Nimrod]] and [[Havilah]].

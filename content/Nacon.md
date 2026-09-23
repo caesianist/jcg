@@ -1,0 +1,1 @@
+At this area, [[Uzzah]] reached out and took hold of the ark of God, because the oxen had stumbled, after which God struck him down on the spot for his irreverence.

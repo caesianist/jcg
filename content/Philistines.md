@@ -1,0 +1,1 @@
+An ancient people who lived along the southern coast of [[Canaan]] during the Iron Age. 

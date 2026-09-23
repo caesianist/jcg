@@ -1,0 +1,1 @@
+Daughter of [[Jacob]] and [[Leah]], in [[Genesis 34]] she is raped by [[Shechem]].

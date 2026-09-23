@@ -1,0 +1,1 @@
+Associate of [[Joseph Smith Jr.]], meeting him on April 5th, 1829. The first baptized Latter Day Saint.

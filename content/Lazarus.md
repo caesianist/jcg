@@ -1,0 +1,1 @@
+A figure of the New Testament whose life is restored by [[Jesus]] four days after his death, as told in [[John 11]]. Brother of [[Martha]] and [[Mary]] of Bethany (who may be Magdalene.)

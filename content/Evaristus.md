@@ -1,0 +1,1 @@
+Bishop of Rome from c. 99/100 to his death in 107/108. Succeeded by [[Alexander I]].

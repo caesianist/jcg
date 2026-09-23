@@ -1,0 +1,1 @@
+King of Egypt during the time of the Assyrian king [[Shalmaneser]].

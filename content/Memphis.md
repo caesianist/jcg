@@ -1,0 +1,1 @@
+Known in ancient Egyptian as "Ineb-Hedj," meaning "The White Walls," was a significant city in ancient Egypt. It served as the capital of Egypt during the Old Kingdom.

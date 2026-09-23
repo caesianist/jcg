@@ -1,0 +1,1 @@
+The fifth king of the Neo-Babylonian Empire, ruling in 556 BC, succeeded by [[Nabonidus]].

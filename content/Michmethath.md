@@ -1,0 +1,1 @@
+Situated on the northern border of the territory assigned to the [[Ephraimites]].

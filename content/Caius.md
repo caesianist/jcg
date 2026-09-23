@@ -1,0 +1,1 @@
+Bishop of Rome from 17 December 283 to his death in 296. Succeeded by [[Marcellinus]].

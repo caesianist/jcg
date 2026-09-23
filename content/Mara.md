@@ -1,0 +1,1 @@
+This was the name [[Naomi]] renamed herself to after returning to Bethlehem following the deaths of her husband and two sons.

@@ -1,0 +1,1 @@
+A lost book mentioned in the Hebrew Bible, often interpreted as a lost non-canonical book. Numerous forgeries purporting to be rediscovered copies of this lost book have been written. A different interpretation identifies it as a reference to the Pentateuch.

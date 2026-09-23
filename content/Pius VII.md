@@ -1,0 +1,1 @@
+Head of the Catholic Church from 14 March 1800 to his death in August 1823. He was the leader of the Papal States from June 1800 to 17 May 1809 and again from 1814 to his death. Succeeded by [[Leo XII]].

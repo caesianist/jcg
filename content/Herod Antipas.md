@@ -1,0 +1,1 @@
+1st-century Herodian ruler of Galilee and Perea, in the time of the Herodian Tetrarchy. He bore the title of tetrarch ("ruler of a quarter") and is referred to as both "Herod the Tetrarch" and "King Herod" in the New Testament. He was a son of [[Herod the Great]].

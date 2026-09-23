@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople during the period 1785–1789. Succeeded by [[Neophytus VII]].

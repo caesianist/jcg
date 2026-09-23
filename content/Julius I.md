@@ -1,0 +1,1 @@
+Bishop of Rome from 6 February 337 to his death on 12 April 352. Succeeded by [[Liberius]].

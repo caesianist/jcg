@@ -1,0 +1,1 @@
+Located in the region of [[Moab]], east of the Jordan River, later allotted to [[Reubenites]].

@@ -1,0 +1,1 @@
+Attributed to [[Enos (Mormonism)]], a prophet.

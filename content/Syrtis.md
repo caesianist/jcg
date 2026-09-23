@@ -1,0 +1,1 @@
+Gulfs off the northern coast of Africa.

@@ -1,0 +1,1 @@
+Bishop of Rome from c. 167 to his death in c. 174. He was born in Fundi, in the Lazio region of Italy. Soter is known for declaring that marriage was valid only as a sacrament blessed by a priest and also for formally inaugurating Easter as an annual festival in Rome. Succeeded by [[Eleutherius]].

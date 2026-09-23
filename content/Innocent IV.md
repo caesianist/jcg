@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 25 June 1243 to his death in 1254. Succeeded by [[Alexander IV]].

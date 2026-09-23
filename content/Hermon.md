@@ -1,0 +1,1 @@
+Area around the northern boundary of Israel.

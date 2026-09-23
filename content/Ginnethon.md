@@ -1,0 +1,1 @@
+Priest and head of a priestly family in post-exilic Israel.

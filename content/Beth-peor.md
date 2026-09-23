@@ -1,0 +1,1 @@
+Situated in the region of [[Moab]], east of the Jordan River. 

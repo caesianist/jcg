@@ -1,0 +1,1 @@
+Eastern Orthodox church council held in 692 at Constantinople under Justinian II. After this was the [[Second Council of Nicaea]].

@@ -1,0 +1,1 @@
+A boundary marker within [[Kadesh]] for the land promised to the [[Israelites]], it is described as part of the southern border of [[Canaan]].

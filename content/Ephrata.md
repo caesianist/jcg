@@ -1,0 +1,1 @@
+Second wife of [[Caleb]], also sometimes written as [[Ephrath]].

@@ -1,0 +1,1 @@
+Iron Age region of northwestern Iran, best known for having been the political and cultural base of the [[Medes]]. During the Achaemenid period, it comprised present-day Iranian Azerbaijan, Iranian Kurdistan and western Tabaristan.

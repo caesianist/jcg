@@ -1,0 +1,1 @@
+Was either the national god, or an important god, of the [[Ammonites]]. 

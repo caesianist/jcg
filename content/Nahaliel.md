@@ -1,0 +1,1 @@
+A station for the [[Israelites]], near [[Mattanah]].

@@ -1,0 +1,1 @@
+Town situated in the region of Phoenicia, between the cities of [[Tyre]] and [[Sidon]], along the Mediterranean coast. 

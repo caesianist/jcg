@@ -1,0 +1,1 @@
+City of Judea. It was the reported home of [[Joseph]].

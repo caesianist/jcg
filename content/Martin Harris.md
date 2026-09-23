@@ -1,0 +1,1 @@
+Friend of [[Joseph Smith Jr.]] who financially guaranteed the first printing of the [[Book of Mormon]].

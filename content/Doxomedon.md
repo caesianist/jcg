@@ -1,0 +1,1 @@
+A term used in some Sethian texts to describe the highest aeonic pentad found in the more elaborate cosmological accounts.

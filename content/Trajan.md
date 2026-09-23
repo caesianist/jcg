@@ -1,0 +1,1 @@
+Roman emperor from AD 98 to 117. Succeeded by [[Hadrian]].

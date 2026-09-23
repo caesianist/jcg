@@ -1,0 +1,1 @@
+Eastern Orthodox council held in Constantinople between 29 August 1872, and 16 September 1872, in response to the schism within a part of the Bulgarian ecclesiastical hierarchy. All the Eastern Orthodox patriarchs of the time participated in it, such as [[Joachim II]].

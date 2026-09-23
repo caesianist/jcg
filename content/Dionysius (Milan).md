@@ -1,0 +1,1 @@
+Bishop of Milan from 349 to 355. Succeeded by [[Auxentius]].

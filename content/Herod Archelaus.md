@@ -1,0 +1,1 @@
+Ethnarch of Samaria, Judea, and Idumea, including the cities Caesarea and Jaffa, for nine years (c. 4 BC to AD 6). As a ruler, he was part of what's known as the Herodian tetrarchy, created after the death of [[Herod the Great]]. Herod Archelaus was the son of Herod the Great and [[Malthace]], brother of [[Herod Antipas]], and half-brother of [[Herod II]]. 

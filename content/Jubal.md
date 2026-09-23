@@ -1,0 +1,1 @@
+Son of [[Lamech]] and brother of [[Jabal]].

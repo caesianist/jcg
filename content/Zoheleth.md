@@ -1,0 +1,1 @@
+Stone next to [[En-rogel]].

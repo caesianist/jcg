@@ -1,0 +1,1 @@
+Location near [[Zin]] and [[Rehob]].

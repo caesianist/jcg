@@ -1,0 +1,1 @@
+Born around 843 BCE, the eighth king of [[Judah]], and the sole surviving son of [[Ahaziah]] after the massacre of the royal family ordered by his grandmother, [[Athaliah]]. His mother was [[Zibiah]]. He was 7 years old when he ascended to the throne, reigning for 40 years.

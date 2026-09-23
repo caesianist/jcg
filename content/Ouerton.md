@@ -1,0 +1,1 @@
+Activator of the left shoulder in [[Apocryphon of John]].

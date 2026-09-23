@@ -1,0 +1,1 @@
+Bishop of Byzantium from 314 and the first bishop of Constantinople to 330 (the city was renamed during his episcopacy in 330). Succeeded by [[Paul I (Constantinople)]].

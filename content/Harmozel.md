@@ -1,0 +1,1 @@
+The first angel (a luminary) in some Gnostic literature to come from God.

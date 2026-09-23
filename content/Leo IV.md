@@ -1,0 +1,1 @@
+Bishop of Rome from 10 April 847 to his death in 855. Succeeded by [[Benedict III]].

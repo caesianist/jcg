@@ -1,0 +1,1 @@
+The nineteenth king of [[Judah]] who was dethroned by the King of Babylon, [[Nebuchadnezzar II]], in the 6th century BCE and was taken into captivity. He was the son and successor of King [[Jehoiakim]]. Father of [[Salathiel]].

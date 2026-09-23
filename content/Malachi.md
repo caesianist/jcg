@@ -1,0 +1,1 @@
+Prophet, author of the [[Book of Malachi]]. It is possible that Malachi is not a proper name, because it means "messenger"; it has been assumed to be a pseudonym. According to Jewish tradition, Malachi's true identity is [[Ezra]] the scribe.

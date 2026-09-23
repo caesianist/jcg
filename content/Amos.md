@@ -1,0 +1,1 @@
+The older contemporary of [[Hosea]] and [[Isaiah]] and was active c. 760–755 BC during the rule of kings [[Jeroboam II]] of Israel and [[Uzziah]] of the Kingdom of [[Judah]] and is portrayed as being from the southern Kingdom of Judah yet preaching in the northern Kingdom of Israel. Father of [[Mattathias]], son of [[Nahum]].]]

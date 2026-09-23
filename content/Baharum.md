@@ -1,0 +1,1 @@
+A village in the territory of [[Benjamin]] identified with modern Ras et-Tmim, southeast of ’tsāwiyeh and east of the [[Mount of Olives]] on the northern side of the road to [[Jericho]] from Jerusalem.

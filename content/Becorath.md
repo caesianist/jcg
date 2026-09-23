@@ -1,0 +1,1 @@
+Son of [[Aphiah]], father of [[Zeror]].

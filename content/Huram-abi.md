@@ -1,0 +1,1 @@
+Master craftsman from [[Tyre]] who assisted King [[Solomon]] in building [[Solomon's Temple]].

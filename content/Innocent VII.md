@@ -1,0 +1,1 @@
+Head of the Catholic Church from 17 October 1404 to his death, in November 1406. Succeeded by [[Gregory XII]].

@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 712 to 715. Succeeded by [[Germanus I]].

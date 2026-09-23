@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople during the period 1834–1835. Succeeded by [[Gregory VI (Constantinople)]].

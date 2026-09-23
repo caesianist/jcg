@@ -1,0 +1,1 @@
+Mother of [[John the Baptist]], wife of [[Zechariah]].

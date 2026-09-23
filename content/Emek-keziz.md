@@ -1,0 +1,1 @@
+Unknown location but described as a town of the tribe of [[Benjamin]] and as a valley.

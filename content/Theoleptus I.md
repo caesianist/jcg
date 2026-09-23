@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1513 to 1522. Succeeded by [[Jeremias I]].

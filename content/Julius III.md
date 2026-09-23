@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 22 February 1550 to his death, in March 1555. After a career as a distinguished and effective diplomat, Julius was elected to the papacy as a compromise candidate after the death of [[Paul III]]. Succeeded by [[Marcellus II]].

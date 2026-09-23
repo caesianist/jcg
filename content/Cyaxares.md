@@ -1,0 +1,1 @@
+The third king of the [[Medes]]. He ascended to the throne in 625 BC, ruling for 28 years.

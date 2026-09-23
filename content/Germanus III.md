@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople (28 May 1265 – 14 September 1266). He attended the [[Second Council of Lyon]] in 1274. Succeeded by [[Joseph I]].

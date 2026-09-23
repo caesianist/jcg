@@ -1,0 +1,1 @@
+The totality of the divine powers often used in Gnostic literature.

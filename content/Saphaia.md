@@ -1,0 +1,1 @@
+Figure associated with heavenly light, related to [[Sophia]].

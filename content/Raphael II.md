@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1603 to 1607. Succeeded by [[Neophytus II]].

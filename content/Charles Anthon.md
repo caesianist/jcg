@@ -1,0 +1,1 @@
+Had a disagreement with [[Martin Harris]] over an account where they discussed the authenticity of the Anthon Transcript of the [[Book of Mormon]].

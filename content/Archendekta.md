@@ -1,0 +1,1 @@
+The name of those who are empowered over various senses of the humans in [[Apocryphon of John]]

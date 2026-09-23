@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople four times from 1646 to 1656. Succeeded by [[Parthenius II]], [[Cyril III]] twice, and [[Parthenius III]].

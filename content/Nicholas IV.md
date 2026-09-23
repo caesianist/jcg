@@ -1,0 +1,1 @@
+Head of the Catholic Church and leader of the Papal States from 22 February 1288 to his death, on 4 April 1292. Succeeded by [[Celestine V]].

@@ -1,0 +1,1 @@
+A place which serves as source of horses for [[Solomon]]'s extensive chariotry and cavalry.

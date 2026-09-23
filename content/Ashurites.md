@@ -1,0 +1,1 @@
+Often associated with the broader region of Assyria, although their exact identity and geographical location remains unidentified.

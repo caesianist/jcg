@@ -1,0 +1,1 @@
+Born around 85 and died around 160 AD. Preached that God had sent [[Jesus]] Christ, who was distinct from the "vengeful" God (Demiurge) who had created the world. He considered himself a follower of [[Paul the Apostle]], whom he believed to have been the only true apostle of Jesus Christ; his doctrine is called Marcionism.

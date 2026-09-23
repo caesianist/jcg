@@ -1,0 +1,1 @@
+Name is believed to derive from the Hebrew root "sha'al," meaning "fox" or "jackal," suggesting a place associated with these animals. City located in [[Shephelah]] that originally was inhabited by the [[Amorites]] and were in a struggle with the tribe of [[Dan]] before the tribe secured it.

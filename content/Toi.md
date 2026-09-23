@@ -1,0 +1,1 @@
+King of [[Hamath]], father of [[Joram]].

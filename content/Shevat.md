@@ -1,0 +1,1 @@
+Th fifth month of the civil year starting in [[Tishre]] (or Tishri) and the eleventh month of the ecclesiastical year on the Hebrew calendar starting in [[Nisan]]. It is a month of 30 days. Shevat usually occurs in January–February on the Gregorian calendar.

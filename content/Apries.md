@@ -1,0 +1,1 @@
+Also known as Wahibre Haaibre or [[Hophra]] in [[Jeremiah 44]]. Pharaoh who reigned from 589–570 BCE. 

@@ -1,0 +1,1 @@
+Revision of the [[Revised Version]] for American audiences. American scholars were invited to take part in the RV by correspondence, and they published their own version after a contractual delay of 15 years. God’s name (the Tetragrammaton) is rendered as Jehovah, rather than Lord, and ‘Holy Ghost’ was dropped in favor of ‘Holy Spirit.’

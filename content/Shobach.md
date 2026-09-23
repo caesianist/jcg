@@ -1,0 +1,1 @@
+Captain of the army of [[Hadadezer]], King of [[Aram]], who was defeated and slain by [[David]] at [[Helam]].

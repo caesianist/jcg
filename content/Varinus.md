@@ -1,0 +1,1 @@
+One of the two “holy men” who supposedly brought [[Jerome of Stridon]] the report about the Hebrew [[Gospel of Matthew]] alongside [[Parmenius]].

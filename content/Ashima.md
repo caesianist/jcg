@@ -1,0 +1,1 @@
+West Semitic goddess of fate.

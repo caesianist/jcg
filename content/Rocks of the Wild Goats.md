@@ -1,0 +1,1 @@
+Identified with the region of [[En-gedi]] located on the western shore of the Dead Sea. Has steep cliffs, caves, and abundant wildlife, including ibexes, which are a type of wild goat. It is one of the places where [[David]] and his men hid from [[Saul]].

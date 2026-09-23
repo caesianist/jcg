@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople (1633, 1635–1636, 1638–1639). Succeeded by [[Cyril I]], [[Neophytus III]], and [[Parthenius I]].

@@ -1,0 +1,1 @@
+A name for [[Yaldabaoth]] in [[On the Origin of the World]] because "he was like a lion".

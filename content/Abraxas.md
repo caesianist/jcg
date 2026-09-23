@@ -1,0 +1,1 @@
+Alternative name for [[Abrasax]].  A powerful supernatural being associated with the 365 heavens or the totality of the cosmic year (365 days). In some Gnostic traditions, Abraxas is associated with a high cosmic ruler or divine power, though his exact status varies considerably between texts and sources.

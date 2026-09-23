@@ -1,0 +1,1 @@
+Successor of [[Jehoash]] and the thirteenth king of the ancient Kingdom of Israel, over which he ruled for forty-one years in the eighth century BC, succeeded by [[Zechariah]], his child.

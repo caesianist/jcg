@@ -1,0 +1,1 @@
+An ancestor/eponym of the [[Anakim]], described in [[Joshua 15]] as “the greatest man among the Anakim", father of [[Anak]].

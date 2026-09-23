@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople for 42 days in 1667. Succeeded by [[Methodius III]].

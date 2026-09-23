@@ -1,0 +1,1 @@
+Son of [[Gomer]] and [[Hosea]].

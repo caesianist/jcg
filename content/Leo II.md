@@ -1,0 +1,1 @@
+ Bishop of Rome from 17 August 682 to his death on 28 June 683. Succeeded by [[Benedict II]].

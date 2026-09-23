@@ -1,0 +1,1 @@
+Son of [[Jacob]] and [[Bilhah]] and father of [[Hushim]]. Can also refer to an area referenced in [[Genesis 14]].

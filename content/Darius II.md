@@ -1,0 +1,1 @@
+King of the Achaemenid Empire from 423 to 405 BCE, succeeded by [[Artaxerxes II]].

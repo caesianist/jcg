@@ -1,0 +1,1 @@
+Derived from the Hebrew word "יְשִׁימוֹן" (yeshimon), which means "desolation" or "wilderness." East of the Jordan River and the Dead Sea region. 

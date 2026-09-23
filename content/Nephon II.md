@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople three times: from 1486 to 1488, from 1497 to 1498 and for a short time in 1502. Succeeded by [[Dionysius I]] the first time, [[Joachim I]] the second time, and [[Pachomius I]] the third time.

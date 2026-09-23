@@ -1,0 +1,1 @@
+American clergyman who is credited with beginning the mid-19th-century North American religious movement known as Millerism. After his proclamation of the Second Coming of [[Jesus]] did not occur as expected in the 1840s, new heirs of his message emerged.

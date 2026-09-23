@@ -1,0 +1,1 @@
+A city within the territory allotted to the tribe of [[Zebulun]] near the [[Carmel]] mountain range.

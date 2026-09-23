@@ -1,0 +1,1 @@
+English author and religious reformer. He is known for his Bible translation, commonly known as [[Taverner's Bible]], but originally titled The Most Sacred Bible which is the holy scripture, conteyning the old and new testament, translated into English, and newly recognised with great diligence after most faythful exemplars by Rychard Taverner.

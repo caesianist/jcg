@@ -1,0 +1,1 @@
+Municipality and district of Manisa Province, Turkey.

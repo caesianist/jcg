@@ -1,0 +1,1 @@
+Luminary in some Gnostic literature such as [[Gospel of the Egyptians]] that is associated with understanding.

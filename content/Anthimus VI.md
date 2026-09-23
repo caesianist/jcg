@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople for three periods from 1845 to 1848, from 1853 to 1855 and from 1871 to 1873. Succeeded by [[Anthimus IV]], [[Cyril VII]], and [[Joachim II]].

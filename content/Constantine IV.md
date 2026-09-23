@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from November 1154 to May 1157. Succeeded by [[Luke Chrysoberges]].

@@ -1,0 +1,1 @@
+Born around April of 216 and dying between 274 and 277. Prophet and the founder of Manichaeism.

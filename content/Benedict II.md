@@ -1,0 +1,1 @@
+Bishop of Rome from 26 June 684 to his death on 8 May 685. Succeeded by [[John V]].

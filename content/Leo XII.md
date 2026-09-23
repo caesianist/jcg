@@ -1,0 +1,1 @@
+Head of the Catholic Church and leader of the Papal States from 28 September 1823 to his death in February 1829. Succeeded by [[Pius VIII]].

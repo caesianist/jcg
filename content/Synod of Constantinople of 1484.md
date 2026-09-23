@@ -1,0 +1,1 @@
+Ecumenical synod of the Orthodox Catholic Church (aka Eastern Orthodox Church) that took place from 1 September 1483 to 31 August 1484. It was the first synod to condemn the [[Council of Florence]] and defined the ritual for reception of "Latins" to the Orthodox and Catholic Church of the Greeks. [[Symeon I]] presided over this synod.

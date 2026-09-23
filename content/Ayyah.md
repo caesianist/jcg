@@ -1,0 +1,1 @@
+Area near [[Shechem]], name is derived from the Hebrew word "אַיָּה" (Ayyah), which means "falcon" or "vulture."

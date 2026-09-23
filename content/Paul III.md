@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 13 October 1534 to his death, in November 1549. Succeeded by [[Julius III]].

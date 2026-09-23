@@ -1,0 +1,1 @@
+Place inhabited by "the people of [[Eden]]" and is mentioned along with [[Gozan]] and [[Haran]], which are in northern Mesopotamia, and [[Rezeph]].

@@ -1,0 +1,1 @@
+Alternative name for [[Gera]], father of [[Uzza]] and [[Ahihud]].

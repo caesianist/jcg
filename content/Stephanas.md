@@ -1,0 +1,1 @@
+Member of the church at [[Corinth]], whose family were among the limited number of believers whom [[Paul]] the Apostle had baptized there and whom Paul refers to as the “first-fruits of [[Achaia]]”.

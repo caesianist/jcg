@@ -1,0 +1,1 @@
+A fellow worker with [[Paul the Apostle]], eventually deserted Paul as detailed in [[2 Timothy]].

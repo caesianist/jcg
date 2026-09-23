@@ -1,0 +1,1 @@
+A Roman of Greek descent, was the bishop of Rome from c. 117 or 119 to his death c. 126 or 128. Succeeded by [[Telesphorus]].

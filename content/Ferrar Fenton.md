@@ -1,0 +1,1 @@
+London businessman, a manufacturer, and financial organizer. Most well known for his translation of the Bible, which is commonly referred to as the [[Ferrar Fenton Bible]]. 

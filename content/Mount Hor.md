@@ -1,0 +1,1 @@
+Name of two distinct mountains. One borders the land of [[Edom]] in the area south of the Dead Sea, and the other is by the Mediterranean Sea at the Northern border of Israel. The first Mount Hor is especially significant to the [[Israelites]], as [[Aaron]] the high priest, brother of [[Moses]], died there. The second is the northern boundary of the Land of Israel. 

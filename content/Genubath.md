@@ -1,0 +1,1 @@
+Son of [[Hadad]] and sister of [[Tahpenes]], and weaned by Tahpenes.

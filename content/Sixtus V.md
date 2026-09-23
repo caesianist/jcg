@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 24 April 1585 to his death in August 1590. Succeeded by [[Urban VII]].

@@ -1,0 +1,1 @@
+Loated in the tribal territory of [[Judah]], near the border with [[Benjamin]].

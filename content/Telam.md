@@ -1,0 +1,1 @@
+Located in the southern part of ancient Israel, possibly in the [[Negev]] region. 

@@ -1,0 +1,1 @@
+Father of [[David]] and [[Abinadab]], son of [[Obed]].

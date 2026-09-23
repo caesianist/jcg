@@ -1,0 +1,1 @@
+Location meaning "spring of two calves," mentioned in a prophecy from [[Ezekiel 47]].

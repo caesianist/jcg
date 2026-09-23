@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1855 to 1860. Succeeded by [[Joachim II]].

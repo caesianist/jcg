@@ -1,0 +1,1 @@
+Also known as Thaddeus. Sometimes identified with [[Jude]], the brother of [[Jesus]].

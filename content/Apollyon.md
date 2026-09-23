@@ -1,0 +1,1 @@
+Greek name for [[Abaddon]].

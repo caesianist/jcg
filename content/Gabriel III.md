@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 29 August 1702 to 25 October 1707. Succeeded by [[Neophytus V]].

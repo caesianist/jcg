@@ -1,0 +1,1 @@
+Bishop of Rome and leader of the Papal States from 1 February 772 until his death on 25 December 795. Succeeded by [[Leo III]].

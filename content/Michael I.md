@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1043 to 1059. His disputes with Pope [[Leo IX]] over church practices in the 11th century played a role in the events that led to the [[Great Schism of 1054]]. Succeeded by [[Constantine III]].

@@ -1,0 +1,1 @@
+The "earthly" or "fleshly" name for [[Eugnostos]] in [[Gospel of the Egyptians]].

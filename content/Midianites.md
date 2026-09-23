@@ -1,0 +1,1 @@
+Inhabitants of he Tabuk Province of modern-day Saudi Arabia, associated with [[Midian]].

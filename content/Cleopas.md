@@ -1,0 +1,1 @@
+Also known as [[Cleophas]]. One of the two disciples who encountered [[Jesus]] during the Road to [[Emmaus]] appearance in [[Luke 24]].

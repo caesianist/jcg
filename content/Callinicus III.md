@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople for one day in 1726. Succeeded by [[Paisius II]].

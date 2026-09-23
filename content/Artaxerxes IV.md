@@ -1,0 +1,1 @@
+The twelfth Achaemenid king from 338 to 336 BC, succeeded by [[Darius III]].

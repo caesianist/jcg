@@ -1,0 +1,1 @@
+Situated in the northern region of ancient Israel, within the territory allocated to the tribe of [[Naphtali]]. 

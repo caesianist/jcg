@@ -1,0 +1,1 @@
+Refers to Upper Egypt (the Thebaid), known in Egyptian as Pa‑ta‑res meaning “the land of the south."

@@ -1,0 +1,1 @@
+A personal paraphrase, not a translation, of the Bible in English by [[Kenneth N. Taylor]] and first published in 1971. Taylor used the [[American Standard Version]] of 1901 as his base text.

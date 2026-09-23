@@ -1,0 +1,1 @@
+Southern ancient Judaea, derived from the Hebrew word "Akrabbim," meaning "scorpions."

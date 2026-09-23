@@ -1,0 +1,1 @@
+Member of the [[Edomites]], chief herdsman for [[Saul]], depicted as an antagonist of [[David]] responsible for the deaths of a large number of priests.

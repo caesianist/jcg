@@ -1,0 +1,1 @@
+The name "Tiphsah" is derived from a Hebrew word meaning "crossing" or "ford". Traditionally identified with the city of Thapsacus, located on the western bank of the Euphrates River. 

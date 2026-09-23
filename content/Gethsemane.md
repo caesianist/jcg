@@ -1,0 +1,1 @@
+Garden as well as a courtyard at the foot of the [[Mount of Olives]] in East Jerusalem, where [[Jesus]] was arrested.

@@ -1,0 +1,1 @@
+Bishop of Rome from 23 July 685 to his death on 2 August 686. Succeeded by [[Conon]].

@@ -1,0 +1,1 @@
+One of the wise men in [[Acts of Xanthippe, Polyxena, and Rebecca]].

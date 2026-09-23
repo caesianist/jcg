@@ -1,0 +1,1 @@
+A city of refuge east of the Jordan River taken from the [[Amorites]].

@@ -1,0 +1,1 @@
+Adviser to [[Abimelech]] in [[Genesis 26]].

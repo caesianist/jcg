@@ -1,0 +1,1 @@
+Patriarch of Constantinople from 25 February 520 to 5 June 535. Succeeded by [[Anthimus I]].

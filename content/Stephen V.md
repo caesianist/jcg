@@ -1,0 +1,1 @@
+Bishop of Rome from September 885 to his death on 14 September 891. Succeeded by [[Formosus]].

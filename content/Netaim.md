@@ -1,0 +1,1 @@
+Area near [[Gederah]].

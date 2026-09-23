@@ -1,0 +1,1 @@
+Son of [[Jechoniah]], father of [[Zerubbabel]]. Another name for [[Shealtiel]].

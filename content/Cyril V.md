@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople for two periods, from 1748 to 1751 and from 1752 to 1757. Succeeded by [[Paisius II]] and [[Callinicus IV]].

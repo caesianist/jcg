@@ -1,0 +1,1 @@
+Located in what is now southwestern Iran, in the broader region of ancient [[Elam]].

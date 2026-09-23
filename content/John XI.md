@@ -1,0 +1,1 @@
+Bishop of Rome and nominal ruler of the Papal States from March 931 to his death in December 935. Succeeded by [[Leo VII]].

@@ -1,0 +1,1 @@
+Inhabited by the [[Hivites]], seven miles northwest of Jerusalem.

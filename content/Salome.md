@@ -1,0 +1,1 @@
+A follower of [[Jesus]] who appears briefly in the canonical gospels and at greater length in apocryphal writings, said to be present at Jesus' crucifixion and believed to be wife of [[Zebedee]], mother of [[John the Apostle]] and [[James the Great]].

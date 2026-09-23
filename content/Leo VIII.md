@@ -1,0 +1,1 @@
+Bishop of Rome and nominal ruler of the Papal States from 6 December 963 to 1 March 965. Succeeded by [[John XIII]].

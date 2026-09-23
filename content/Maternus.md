@@ -1,0 +1,1 @@
+Archbishop of Milan from c. 316 to c. 328. Succeeded by [[Protasius]].

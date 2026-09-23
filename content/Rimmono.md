@@ -1,0 +1,1 @@
+Name believed to be derived from the Hebrew word for "pomegranate", situated in the region allocated to [[Zebulun]]

@@ -1,0 +1,1 @@
+Daughter of [[Amram]] and [[Jochebed]], sibling to [[Moses]], died in [[Kadesh]].

@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople during the period 1809–1813. Succeeded by [[Cyril VI]].

@@ -1,0 +1,1 @@
+Bishop of Rome from 3 September 590 until his death on 12 March 604. Succeeded by [[Sabinian]].

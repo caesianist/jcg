@@ -1,0 +1,1 @@
+City in [[Edom]] associated with [[Hadar]].

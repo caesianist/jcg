@@ -1,0 +1,1 @@
+Father of [[Jehu]], son of [[Seraiah]].

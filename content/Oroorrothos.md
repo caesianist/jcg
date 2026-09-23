@@ -1,0 +1,1 @@
+Lord of cold in [[Apocryphon of John]].

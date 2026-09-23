@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from August 1596 to February 1597. Succeeded by [[Meletius I]].

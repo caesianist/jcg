@@ -1,0 +1,1 @@
+Father of [[Johanan]], a member of the [[Levites]] who signed [[Ezra]]'s covenant.

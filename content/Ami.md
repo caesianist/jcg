@@ -1,0 +1,1 @@
+Servant to [[Solomon]] whose descendants were exiled Jews who returned from Babylon.

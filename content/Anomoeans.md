@@ -1,0 +1,1 @@
+A heretical sect that held that [[Jesus]] was neither of the same nature (homoousian) as God the Father nor even a similar nature to God the Father (homoiousian).

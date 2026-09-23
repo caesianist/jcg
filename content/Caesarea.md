@@ -1,0 +1,1 @@
+Ancient and medieval port city on the coast of the eastern Mediterranean, and later a small fishing village. It was the capital of Roman Judaea, Syria Palaestina and Palaestina Prima, successively, for a period of c. 650 years and a major intellectual hub of the Mediterranean.

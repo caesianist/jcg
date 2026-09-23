@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople for two terms, from January 1389 to July 1390, and again from c. September 1390 until his death, May 1397. Succeeded by [[Macarius]] the first time and [[Callistus II]] the second time.

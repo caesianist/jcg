@@ -1,0 +1,1 @@
+Situated west of the River Jordan. Some scholars believe Bochim is another name for [[Bethel]] or is near Bethel.

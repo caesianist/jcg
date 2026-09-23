@@ -1,0 +1,5 @@
+[[Prologue to Summa Theologiae]]
+[[First Part of Summa Theologiae]]
+[[Second Part of Summa Theologiae]]
+[[Third Part of Summa Theologiae]]
+[[Supplement to the Third Part of Summa Theologiae]]

@@ -1,0 +1,1 @@
+Besides [[Ur of the Chaldees]] and the plain of [[Olishem]], the priest of Pharaoh who was also in the service of a solar deity named [[Shagreel]], made offerings on an altar here.

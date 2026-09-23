@@ -1,0 +1,1 @@
+Near the boundary between the northern territory of the Tribes of Israel and the [[Sidonians]].

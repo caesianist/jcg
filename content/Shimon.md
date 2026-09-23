@@ -1,0 +1,1 @@
+Father of [[Amnon]], [[Rinnah]], [[Ben-hanan]], and [[Tilon]]. 

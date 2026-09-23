@@ -1,0 +1,1 @@
+Deity of the [[Avvites]] during the time of [[Shalmaneser]].

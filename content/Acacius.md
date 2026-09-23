@@ -1,0 +1,1 @@
+Patriarch of Constantinople from 472 to 489, during his tenure, the [[Acacian schism]] emerged. Succeeded by [[Fravitta]].

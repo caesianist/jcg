@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople (in exile due to the [[Fourth Crusade]]) for three months in 1240, when he died. Succeeded by [[Manuel II]].

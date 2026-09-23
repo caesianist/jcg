@@ -1,0 +1,1 @@
+Roman proconsul of [[Achaia]] when St. Paul was at [[Corinth]], A.D. 53, under the emperor Claudius.

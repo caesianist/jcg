@@ -1,0 +1,1 @@
+Construction project of [[Solomon]] related to the [[Hall of the Throne]], covered with cedar from floor to floor.

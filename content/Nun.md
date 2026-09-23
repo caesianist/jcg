@@ -1,0 +1,1 @@
+Man from the Tribe of [[Ephraim]], son of [[Elishama]], and father of [[Joshua]].

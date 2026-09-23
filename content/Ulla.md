@@ -1,0 +1,1 @@
+Father of [[Arah]], [[Hanniel]], and [[Rizia]].

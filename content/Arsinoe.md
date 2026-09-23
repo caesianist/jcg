@@ -1,0 +1,1 @@
+One of the female disciples of [[Jesus]] in the [[First Apocalypse of James]]. The text praises her alongside [[Salome]], [[Mariam]], and [[Martha]].

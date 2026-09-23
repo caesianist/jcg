@@ -1,0 +1,1 @@
+Mother of the lords over cold, heat, dryness, and wetness ([[Oroorrothos]], [[Phloxopha]], [[Erimacho]], and [[Athuro]]).

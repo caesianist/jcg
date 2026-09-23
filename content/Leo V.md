@@ -1,0 +1,1 @@
+Bishop of Rome and nominal ruler of the Papal States in 903. Succeeded by [[Sergius III]].

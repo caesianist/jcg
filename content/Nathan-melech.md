@@ -1,0 +1,1 @@
+One of the officials of king [[Josiah]].

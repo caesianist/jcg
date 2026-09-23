@@ -1,0 +1,1 @@
+Aramaic form of [[Mary]].

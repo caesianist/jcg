@@ -1,0 +1,1 @@
+The Babylonian god [[Marduk]]. Bel means “lord” in Akkadian and was originally a title rather than necessarily a unique divine name. By the Neo-Babylonian period, Bel was primarily a title/name for Marduk, Babylon's chief deity.

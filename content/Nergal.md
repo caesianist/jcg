@@ -1,0 +1,1 @@
+ Mesopotamian god worshiped through all periods of Mesopotamian history, from Early Dynastic to Neo-Babylonian times, with a few attestations indicating that his cult survived into the period of Achaemenid domination. He was primarily associated with war, death, and disease, and has been described as the "god of inflicted death".

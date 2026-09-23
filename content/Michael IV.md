@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1208 to his death in 1212. Succeeded by [[Theodore II (Constantinople)]].

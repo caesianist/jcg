@@ -1,0 +1,1 @@
+Located at Khirbet el-Kafira north of the Palestinian town of Qatanna, West Bank. It is situated atop a hill covering about 4-5 acres. 

@@ -1,0 +1,1 @@
+The site of King [[David]]'s victory over the Syrians under [[Hadadezer]]. It may be associated with modern Alma, Israel, about 55 km (34 mi) east of the Sea of Galilee.

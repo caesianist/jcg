@@ -1,0 +1,1 @@
+Brother of [[Ezer]] who is killed by farmers near [[Gath]].

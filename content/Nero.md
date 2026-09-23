@@ -1,0 +1,1 @@
+Roman emperor from AD 54 until his suicide in AD 68, as the final emperor of the Julio-Claudian dynasty. Succeeded by [[Galba]].

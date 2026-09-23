@@ -1,0 +1,1 @@
+The fourth king of the Neo-Babylonian Empire, ruling from his usurpation of the throne in 560 BC to his death in 556 BC, succeeded by [[Labashi-Marduk]].

@@ -1,0 +1,1 @@
+Bishop of Rome and leader of the Papal States from January 844 to his death in 847. Succeeded by [[Leo IV]].

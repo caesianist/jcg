@@ -1,0 +1,1 @@
+15 miles south of the Sea of Galilee and about 4 miles west of the Jordan River. Situated at the junction of the [[Jezreel]] Valley.

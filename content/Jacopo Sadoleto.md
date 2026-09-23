@@ -1,0 +1,1 @@
+Born July 12th, 1477, died October 18th, 1547. Italian Catholic cardinal and counterreformer noted for his correspondence with and opposition to [[John Calvin]].

@@ -1,0 +1,1 @@
+Sixth son of [[Jacob]], the second of his two sons born of [[Bilhah]]. 

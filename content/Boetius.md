@@ -1,0 +1,1 @@
+Born around 480 and died around 524 AD. Roman senator, consul, magister officiorum, polymath, historian, and philosopher of the Early Middle Ages. He was a central figure in the translation of the Greek classics into Latin.

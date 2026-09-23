@@ -1,0 +1,1 @@
+Bishop of Constantinople from 342 up to 346, and from 351 until 360. Succeeded by [[Paul I (Constantinople)]] the first time, and succeeded by [[Eudoxius]] the second time.

@@ -1,0 +1,1 @@
+Mentioned in [[Genesis 4]]. Descendant of [[Cain]] and father of [[Methushael]].

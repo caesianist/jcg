@@ -1,0 +1,1 @@
+An ancient city and district in the southern Levant, located in what is today south-central Israel. 

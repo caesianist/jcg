@@ -1,0 +1,1 @@
+Derived from the Hebrew word "קַרְנַיִם" (Qarnayim), which means "horns." Identified with the city of Ashteroth Karnaim, located in the region of [[Bashan]], east of the Jordan River. 

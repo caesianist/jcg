@@ -1,0 +1,1 @@
+Known as Necho II. King of Egypt of the 26th Dynasty (around 610–595 BC).

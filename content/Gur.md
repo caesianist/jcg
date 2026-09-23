@@ -1,0 +1,1 @@
+Near the [[Jezreel]] valley.

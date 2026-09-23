@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 4 December 1154 until his death in 1159. Succeeded by [[Alexander III]].

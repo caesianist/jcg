@@ -1,0 +1,1 @@
+One of the military groups of [[David]] who protected [[Joash]].

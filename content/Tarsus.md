@@ -1,0 +1,1 @@
+Municipality and district of Mersin Province, Turkey. 12 miles inland from the Mediterranean sea.

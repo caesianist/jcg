@@ -1,0 +1,1 @@
+Celestial power in Sethian Gnosticism, the name translates roughly to sent/commissioned by God.

@@ -1,0 +1,1 @@
+Location unknown, near [[Paran]] and [[Laban]].

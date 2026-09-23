@@ -1,0 +1,1 @@
+A sun deity in [[Abraham 1]].

@@ -1,0 +1,1 @@
+Head of the Catholic Church and leader of the Papal States from 23 November 1700 to his death in March 1721. Succeeded by [[Innocent XIII]].

@@ -1,0 +1,1 @@
+The precise meaning of “Selah” remains the subject of scholarly debate. Some suggest it comes from a Hebrew root indicating “to lift up” or “to exalt,” but there is no certainty.

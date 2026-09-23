@@ -1,0 +1,1 @@
+Located in the Jordan Valley, near the northern end of the Dead Sea.

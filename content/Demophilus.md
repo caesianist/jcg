@@ -1,0 +1,1 @@
+Bishop of Constantinople from Early 370 until he was expelled on 27 November 380. Succeeded by [[Evagrius]]. 

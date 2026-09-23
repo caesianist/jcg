@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from July 1001 to 1019. Succeeded by [[Eustathius]].

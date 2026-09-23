@@ -1,0 +1,1 @@
+A religious preacher active in the area of the Jordan River in the early first century AD. According to the New Testament, John anticipated a messianic figure greater than himself, and in the Gospels, he is portrayed as the precursor or forerunner of [[Jesus]].

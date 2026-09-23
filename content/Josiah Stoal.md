@@ -1,0 +1,1 @@
+Also called Josiah Stowell Sr. An associate of [[Joseph Smith Jr.]]. Stowell hired Smith as a seer in 1825, testified on his behalf in two separate criminal proceedings, and joined Smith's newly established church in 1830.

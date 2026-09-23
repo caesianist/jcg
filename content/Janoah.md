@@ -1,0 +1,1 @@
+One of the towns captured by king of Assyria, [[Tiglath-pileser]].

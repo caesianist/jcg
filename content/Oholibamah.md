@@ -1,0 +1,1 @@
+Daughter of [[Zibeon]], wife to [[Esau]], and mother of [[Jeush]], [[Jalam]], and [[Korah]].

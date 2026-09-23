@@ -1,0 +1,1 @@
+A ruler of Ancient Israel, as a military commander with [[Deborah]], from the defeated the armies of the [[Canaanites]] led by [[Sisera]]. Son of [[Abinoam]].

@@ -1,0 +1,1 @@
+Son of [[Levi]]. Father of [[Amram]], [[Izhar]], [[Hebron]], and [[Uzziel]].

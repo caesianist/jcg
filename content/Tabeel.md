@@ -1,0 +1,1 @@
+One of the adversaries of Jews during the Babylonian exile. The name "Tabeel" is of Aramaic origin, meaning "God is good" or "God is my good." 

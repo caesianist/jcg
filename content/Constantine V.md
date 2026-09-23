@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1897 to 1901. Succeeded by [[Joachim III]].

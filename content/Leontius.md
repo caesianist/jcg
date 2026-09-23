@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from March to October 1189 before being deposed. Succeeded by [[Dositheus]].

@@ -1,0 +1,1 @@
+Ethnic group in the Levant. Interpreted to have been a group of elite mercenaries employed by King [[David]], some of whom acted as his bodyguards, and others as part of his army. The Hebrew name often rendered derives from a root suggesting “cut off” or “separated.” 

@@ -1,0 +1,1 @@
+A personified manifestation of the Spirit.

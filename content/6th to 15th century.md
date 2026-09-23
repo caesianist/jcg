@@ -1,0 +1,8 @@
+[[Gospel of Pseudo-Matthew]] (7th century CE; —)  
+[[Alphabet of Ben Sira]] (8th–11th century CE; —)  
+[[Old English Hexateuch]] (1000 CE; translation)
+[[Wessex Gospels]] (990 to 1175; translation)
+[[Dictatus papae]] (1075)
+[[Summa Theologiae]] (1265 to 1274; —)
+[[Wycliffe's Bible]] (1382; translation)
+[[Theologia Germanica]] (14th century CE; —) 

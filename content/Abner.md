@@ -1,0 +1,1 @@
+Son of [[Ner]], cousin of King [[Saul]] and the commander-in-chief of his army.

@@ -1,0 +1,1 @@
+According to [[Rashi]], was another name for [[Jethro]]. The father of [[Eleazar]]'s wife.

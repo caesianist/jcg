@@ -1,0 +1,1 @@
+Bishop of Rome from 29 September 855 to his death on 17 April 858. Succeeded by [[Nicholas I]].

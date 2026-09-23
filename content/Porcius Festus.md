@@ -1,0 +1,1 @@
+Successor to [[Felix]] as the Roman procurator of Judea.

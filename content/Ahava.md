@@ -1,0 +1,1 @@
+Location where the Jewish exiles returning from Babylon assembled under [[Ezra]]'s leadership, the people gathered at the canal flowing toward Ahava, pausing for three days to organize and prepare for their journey to Jerusalem.

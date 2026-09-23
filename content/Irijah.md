@@ -1,0 +1,1 @@
+An official who arrests [[Jeremiah]] on suspicion of desertion, son of [[Shelemiah]].

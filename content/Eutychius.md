@@ -1,0 +1,1 @@
+Patriarch of Constantinople from 552 to 565 and later from 577 to 582. Succeeded by [[John Scholasticus]] the first time and [[John IV (Constantinople)]] the second time.

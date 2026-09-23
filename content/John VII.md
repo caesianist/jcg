@@ -1,0 +1,1 @@
+Bishop of Rome from 1 March 705 to his death on 18 October 707. Succeeded by [[Sisinnius]].

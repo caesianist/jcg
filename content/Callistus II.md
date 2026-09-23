@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople in 1397. Succeeded by [[Matthew I]].

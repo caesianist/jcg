@@ -1,0 +1,1 @@
+Bishop of Le Puy (1257–1260), Archbishop of Narbonne (1259–1261), Cardinal of Sabina (1261–1265), and head of the Catholic Church from 5 February 1265 until his death on 29 November 1268. Succeeded by [[Gregory X]].

@@ -1,0 +1,1 @@
+An ancient city and sanctuary in ancient Israel now located in the West Bank.

@@ -1,0 +1,16 @@
+CHAPTER V
+How we are to take that Saying, that we must come to be without Will, Wisdom, Love, Desire, Knowledge, and the like.
+
+ 
+
+Certain men say that we ought to be without will, wisdom, love, desire, knowledge, and the like. Hereby is not to be understood that there is to be no knowledge in man, and that God is not to be loved by him, nor desired and longed for, nor praised and honoured; for that were a great loss, and man were like the beasts and as the brutes that have no reason. But it meaneth that man’s knowledge should be so clear and perfect that he should acknowledge of a truth that in himself he neither hath nor can do any good thing, and that none of his knowledge, wisdom and art, his will, love and good works do come from himself, nor are of man, nor of any creature, but that all these are of the eternal God, from whom they all proceed. As Christ Himself saith, “Without Me, ye can do nothing.”8 [[Paul the Apostle]] saith also, “What hast thou that thou hast not received?”9 As much as to say—nothing. “Now if thou didst receive it, why dost thou glory as if thou hadst not received it?” Again he saith, “Not that we are sufficient of ourselves to think anything as of ourselves, but our sufficiency is of God.”10 Now when a man duly perceiveth these things in himself, he and the creature fall behind, and he doth not call anything his own, and the less he taketh this knowledge unto himself, the more perfect doth it become. So also is it with the will, and love and desire, and the like. For the less we call these things our own, the more perfect and noble and Godlike do they become, and the more we think them our own, the baser and less pure and perfect do they become.
+
+Behold on this sort must we cast all things from us, and strip ourselves of them; we must refrain from claiming anything for our own. When we do this, we shall have the best, fullest, clearest and noblest knowledge that a man can have, and also the noblest and purest love, will and desire; for then these will be all of God alone. It is much better that they should be God’s than the creature’s. Now that I ascribe anything good to myself, as if I were, or had done, or knew, or could perform any good thing, or that it were mine, this is all of sin and folly. For if the truth were rightly known by me, I should also know that I am not that good thing and that it is not mine, nor of me, and that I do not know it, and cannot do it, and the like. If this came to pass, I should needs cease to call anything my own.
+
+It is better that God, or His works, should be known, as far as it be possible to us, and loved, praised and honoured, and the like, and even that man should vainly imagine he loveth or praiseth God, than that God should be altogether unpraised, unloved, unhonoured and unknown. For when the vain imagination and ignorance are turned into an understanding and knowledge of the truth, the claiming anything for our own will cease of itself. Then the man says: “Behold! I, poor fool that I was, imagined it was I, but behold! it is and was, of a truth, God!”
+
+ 
+
+8    John 15:5.
+9    1 Cor. 4:7.
+10    2 Cor. 3:5.

@@ -1,0 +1,1 @@
+Servant of [[Saul]], and then later of Saul's grandson, [[Mephibosheth]]. Had 15 sons and 20 servants.

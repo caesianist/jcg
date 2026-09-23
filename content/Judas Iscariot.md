@@ -1,0 +1,1 @@
+One of the original twelve apostles of [[Jesus]]. Judas betrayed Jesus to the Sanhedrin in exchange for thirty pieces of silver, by kissing him on the cheek and addressing him as "master" to reveal his identity to the crowd who had come to arrest him.

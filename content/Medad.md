@@ -1,0 +1,1 @@
+A man described as having prophesied among the [[Israelites]].

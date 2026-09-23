@@ -1,0 +1,1 @@
+Title for [[Mary]] proposed by [[Nestorius]], meaning 'Christ Bearer'.

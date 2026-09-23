@@ -1,0 +1,1 @@
+Lived in [[Lydda]], and had been a cripple for eight years. When [[Peter]] said to him, "[[Jesus]] Christ heals you. Get up and roll up your mat," he was healed and got up.

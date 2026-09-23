@@ -1,0 +1,1 @@
+Situated in the central region of ancient Israel, possibly near the border of the tribal territories of [[Judah]] and [[Benjamin]]. 

@@ -1,0 +1,1 @@
+Concubine of [[Eliphaz]] and sister of [[Lotan]].

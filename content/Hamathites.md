@@ -1,0 +1,1 @@
+Descendants of [[Canaan]] which inhabited the Kingdom of Hamath, located in what is now western Syria and northern Lebanon.

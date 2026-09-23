@@ -1,0 +1,1 @@
+Member of the [[Adullamites]] who [[Judah]] settled near.

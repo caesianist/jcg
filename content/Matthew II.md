@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople three times, shortly in 1596 (20 days), from 1598 to 1602 and for a few days in 1603 (17 days). Succeeded by [[Gabriel I]] the first time, [[Neophytus II]] the second time, [[Raphael II]] the third time.

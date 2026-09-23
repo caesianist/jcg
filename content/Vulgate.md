@@ -1,0 +1,1 @@
+[[Jerome of Stridon]], at the request of Pope [[Damasus I]], compiled and retranslated existing Hebrew, Aramaic, Latin, and Greek manuscripts to create a Latin Bible.

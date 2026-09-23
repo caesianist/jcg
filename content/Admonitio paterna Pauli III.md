@@ -1,0 +1,1 @@
+1544/1545 work by [[John Calvin]], presenting and commenting on an admonition/letter supposedly from Pope [[Paul III]] to Emperor [[Charles V]]. [[The Necessity of Reforming the Church]] includes this text.

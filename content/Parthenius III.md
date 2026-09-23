@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople in 1656–1657. In 1657 he was charged with treason by the Ottoman Sultan and hanged, after refusing to abjure his own Christian faith. Succeeded by [[Gabriel II]].

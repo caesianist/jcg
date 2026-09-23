@@ -1,0 +1,1 @@
+A name derived from a god of the [[Philistines]], formerly worshipped in [[Ekron]], and later adopted by some religions as a major demon. The name Beelzebub is associated with the Canaanite god [[Baal]].

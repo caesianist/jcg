@@ -1,0 +1,1 @@
+One of the places where [[John the Baptist]] was baptizing people. It is distinguished in the Bible as being "near [[Salim]]."

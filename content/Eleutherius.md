@@ -1,0 +1,1 @@
+Bishop of Rome from c. 174 until his death in 189. His pontificate is alternatively dated to 171–185 or 177–193. Succeeded by [[Victor I]].

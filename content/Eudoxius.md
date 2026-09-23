@@ -1,0 +1,1 @@
+Bishop of Constantinople from 27 January 360 to early 370. Succeeded by [[Demophilus]].

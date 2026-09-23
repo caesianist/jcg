@@ -1,0 +1,1 @@
+The fifteenth King of [[Judah]] who, according to the biblical account, succeeded his father [[Manasseh]].

@@ -1,0 +1,1 @@
+Member of the clan of [[Merari]], his name means "festival of the Lord" or "feast of Yahweh."

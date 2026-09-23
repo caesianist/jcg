@@ -1,0 +1,1 @@
+King of the [[Ammonites]] reigning approximately 620 BCE. Father of [[Amminadab II]], preceded by [[Amminadab]].

@@ -1,0 +1,1 @@
+Territory allotted to the tribe of [[Benjamin]]. The burial site of King [[Saul]] and his eldest son [[Jonathan]] after the [[Gibeonites]] executed Saul's descendants to atone for Saul's breach of covenant.

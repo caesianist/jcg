@@ -1,0 +1,1 @@
+Roman emperor, ruling for three months from 15 January to 16 April 69. Succeeded by [[Vitellius]].

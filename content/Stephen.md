@@ -1,0 +1,1 @@
+Deacon in the early church at Jerusalem who angered members of various synagogues by his teachings. Accused of blasphemy at his trial, he made a speech denouncing the Jewish authorities who were sitting in judgment on him.

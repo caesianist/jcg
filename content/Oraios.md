@@ -1,0 +1,1 @@
+Androgynous power encompassing wealth in [[On the Origin of the World]].

@@ -1,0 +1,1 @@
+Place [[Enoch]] went to in [[Moses 7]], may be a variant of the name [[Mahijah]].

@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 13 August 1099 to his death in 1118. Succeeded by [[Gelasius II]].

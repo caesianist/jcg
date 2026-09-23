@@ -1,0 +1,1 @@
+Site on the [[Mount of Olives]] east of historical Jerusalem.

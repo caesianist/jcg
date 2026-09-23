@@ -1,0 +1,1 @@
+Bishop of Rome and nominal ruler of the Papal States from 30 October 942 to 1 May 946. Succeeded by [[Agapetus II]].

@@ -1,0 +1,1 @@
+The third king of the Achaemenid Empire, reigning from 522 BCE until his death in 486 BCE, succeeded by [[Xerxes I]].

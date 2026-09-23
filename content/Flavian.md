@@ -1,0 +1,1 @@
+Archbishop of Constantinople from 446 to 449. Succeeded by [[Anatolius]].

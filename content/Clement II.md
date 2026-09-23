@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 25 December 1046 until his death in 1047. Succeeded by [[Benedict IX]].

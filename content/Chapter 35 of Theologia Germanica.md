@@ -1,0 +1,12 @@
+CHAPTER XXXV
+How there is deep and true Humility and Poorness of Spirit in a Man who is “made a Partaker of the Divine Nature.”
+
+ 
+
+Moreover, in a man who is “made a partaker of the divine nature,” there is a thorough and deep humility, and where this is not, the man hath not been “made a partaker of the divine nature.” So Christ taught in words and fulfilled in works. And this humility springeth up in the man, because in the true Light he seeth (as it also really is) that Substance, Life, Perceiving, Knowledge, Power, and what is thereof, do all belong to the True Good, and not to the creature; but that the creature of itself is nothing and hath nothing, and that when it turneth itself aside from the True Good in will or in works, nothing is left to it but pure evil. And therefore it is true to the very letter, that the creature, as creature, hath no worthiness in itself, and no right to anything, and no claim over any one, either over God or over the creature, and that it ought to give itself up to God and submit to Him because this is just. And this is the chiefest and most weighty matter.
+
+Now, if we ought to be, and desire to be, obedient and submit unto God, we must also submit to what we receive at the hands of any of His creatures, or our submission is all false. From this latter article floweth true humility, as indeed it doth also from the former.43 And unless this verily ought to be, and were wholly agreeable to God’s justice, Christ would not have taught it in words, and fulfilled it in His life. And herein there is a veritable manifestation of God; and it is so of a truth, that of God’s truth and justice this creature shall be subject to God and all creatures, and no thing or person shall be subject or obedient to her. God and all the creatures have a right over her and to her, but she hath a right to nothing: she is a debtor to all, and nothing is owing to her, so that she shall be ready to bear all things from others, and also if needs be to do all things for others. And out of this groweth that poorness of spirit of which Christ said: “Blessed are the poor in spirit” (that is to say, the truly humble), “for theirs is the Kingdom of Heaven.” All this hath Christ taught in words and fulfilled with His life.
+
+ 
+
+43    Namely, God’s having a right to our obedience.

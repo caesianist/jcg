@@ -1,0 +1,1 @@
+The Latin name for the Greek translation of the Hebrew Scriptures means ‘seventy,’ and comes from the idea that 70 (or 72) Jewish scholars were asked by Egyptian king [[Ptolemy II]] (who was Greek), to complete individual copies to be placed in the Library of Alexandria.

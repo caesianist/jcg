@@ -1,0 +1,1 @@
+Located near the Jordan Valley, close to the Pass of [[Adummim]].

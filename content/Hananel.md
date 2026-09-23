@@ -1,0 +1,1 @@
+A tower in the walls of Jerusalem, name means "El (God) is gracious."

@@ -1,0 +1,1 @@
+An Aramean tribe in Southern Babylonia on the eastern bank of the Lower [[Tigris]] River. 

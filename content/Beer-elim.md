@@ -1,0 +1,1 @@
+Translated as "Well of Elim" or "Well of the Mighty Ones," located in [[Moab]].

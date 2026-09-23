@@ -1,0 +1,1 @@
+Held the political office of steward in [[Corinth]].

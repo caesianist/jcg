@@ -1,0 +1,1 @@
+Mountain ridge in Jerusalem. It is named for the olive groves that once covered its slopes. 

@@ -1,0 +1,1 @@
+The son of a woman named [[Hushim]], father of [[Eber]], [[Misham]], [[Shemed]], [[Beriah]], [[Shema]], [[Zebadiah]], [[Meshullam]], [[Hizki]], [[Heber]], [[Ishmerai]], [[Izliah]], and [[Jobab]].

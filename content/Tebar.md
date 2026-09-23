@@ -1,0 +1,1 @@
+Creator of the right shoulder in [[Apocryphon of John]].

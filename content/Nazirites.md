@@ -1,0 +1,1 @@
+Members of the [[Israelites]] who voluntarily took a vow. This vow required the Nazirite to: abstain from wine and strong drink as well as all other grape products, such as vinegar, refrain from cutting the hair on his head, not to become ritually impure by contact with corpses or graves, even those of family members.

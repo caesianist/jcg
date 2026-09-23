@@ -1,0 +1,1 @@
+One of 4 rivers mentioned in [[Genesis 2]]. The text escribes Gihon as "encircling the entire land of [[Cush]]", a name associated with Ethiopia by some. This is the reason that Ethiopians have long identified the Gihon (Giyon) with the Abay River (Blue Nile), which encircles the former kingdom of Gojjam, but this is disputed.

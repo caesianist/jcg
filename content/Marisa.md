@@ -1,0 +1,1 @@
+City located in the [[Shephelah]] region of [[Judah]]. 

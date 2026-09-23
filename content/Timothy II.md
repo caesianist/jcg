@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1612 to 1620. Succeeded by [[Cyril I]].

@@ -1,0 +1,1 @@
+Precise meaning is uncertain. Its context is that of astronomical constellations, and some judge it to mean a specific constellation, while it is often interpreted as a term for the zodiac or the constellations thereof.

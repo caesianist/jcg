@@ -1,0 +1,1 @@
+English clergyman, Bible translator and commentator. He guided the development of [[Matthew's Bible]] in vernacular English during the reign of [[Henry VIII]] and was the first English Protestant executed as a heretic under [[Mary I]].

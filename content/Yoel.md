@@ -1,0 +1,1 @@
+Divine/angelic figure in the Sethian cosmology.

@@ -1,0 +1,1 @@
+King of [[Edom]], succeeded by [[Saul]].

@@ -1,0 +1,1 @@
+An elevated ridge located in Jordan, approximately 700 metres (2,300 ft) above sea level. Part of the [[Abarim]] mountain range, Mount Nebo is mentioned in the Bible as the place where [[Moses]] was granted a view of the Promised Land before his death. 

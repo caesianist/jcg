@@ -1,0 +1,1 @@
+Daughter of [[Zadok]], mother of [[Jotham]].

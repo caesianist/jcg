@@ -1,0 +1,1 @@
+Located between the Hill of [[Moreh]] and Mount [[Tabor]] in the [[Jezreel]] Valley. 

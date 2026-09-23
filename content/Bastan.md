@@ -1,0 +1,1 @@
+Activator of the right foot in [[Apocryphon of John]].

@@ -1,0 +1,1 @@
+Often translated to mean "oak of the soothsayers" or "oak of the diviners," indicating a place associated with divination or pagan practices. 

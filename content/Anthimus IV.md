@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople, between 1840 and 1841, and between 1848 and 1852. Succeeded by [[Anthimus V]] and [[Germanus IV]].

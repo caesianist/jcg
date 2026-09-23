@@ -1,0 +1,1 @@
+Christian prophet from Syria. Name derived from the Aramaic Ḥagab, meaning "Grasshopper", travelled from Jerusalem to [[Antioch]].

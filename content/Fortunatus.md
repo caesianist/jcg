@@ -1,0 +1,1 @@
+A prominent member of the church of [[Corinth]].

@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1064 to 1075. Succeeded by [[Cosmas I]].

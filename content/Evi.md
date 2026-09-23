@@ -1,0 +1,1 @@
+One of five kings of the [[Midianites]] killed during the time of [[Moses]] by an Israelite expedition led by [[Phinehas]].

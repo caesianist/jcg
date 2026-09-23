@@ -1,0 +1,1 @@
+Member of [[Levi]] who accompanied officials of [[Jehoshaphat]].

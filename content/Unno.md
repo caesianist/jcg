@@ -1,0 +1,1 @@
+One of the [[Levites]] who sealed a covenant with [[Nehemiah]].

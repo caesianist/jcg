@@ -1,0 +1,1 @@
+Location in the Transjordan region, east of the Jordan River.

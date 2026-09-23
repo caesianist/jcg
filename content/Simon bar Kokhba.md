@@ -1,0 +1,1 @@
+Jewish military leader in Judea. He lent his name to the [[Bar Kokhba Revolt]], which he initiated against the Roman Empire in 132 CE. Though they were ultimately unsuccessful, Bar Kokhba and his rebels did manage to establish and maintain a Jewish state for about three years after beginning the rebellion. 

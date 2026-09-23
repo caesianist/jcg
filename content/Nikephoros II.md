@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople in exile from 1260 to 1261. Succeeded by [[Arsenius]].

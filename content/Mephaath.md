@@ -1,0 +1,1 @@
+Territory allotted to the [[Reubenites]], it is also one of the cities given to the [[Levites]], specifically to the [[Merarites]] as part of their inheritance in the Promised Land. The city is located in the region of the Mishor, a plateau area east of the Jordan River.

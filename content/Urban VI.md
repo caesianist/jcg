@@ -1,0 +1,1 @@
+Head of the Catholic Church from 8 April 1378 to his death, in October 1389. Succeeded by [[Boniface IX]].

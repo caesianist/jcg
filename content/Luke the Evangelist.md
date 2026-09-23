@@ -1,0 +1,1 @@
+The early Church Fathers ascribed to him authorship of both the [[Gospel of Luke]] and the [[Acts of the Apostles]]. Scholarly opinion on the tradition is roughly evenly divided near the end of the 20th century.

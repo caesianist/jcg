@@ -1,0 +1,1 @@
+An epithet of the storm god of [[Canaan]] for [[Baal]] in his role as lord of "Mount Zaphon" in antiquity, which in [[Exodus 14]] is the location referred to.

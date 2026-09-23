@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1503 to 1513, except for a short period in 1504. Succeeded by [[Joachim I]] briefly and then by [[Theoleptus I]].

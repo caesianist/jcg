@@ -1,0 +1,1 @@
+Activator of the chest in [[Apocryphon of John]].

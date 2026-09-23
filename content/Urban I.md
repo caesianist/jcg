@@ -1,0 +1,1 @@
+Bishop of Rome from 222 to 23 May 230. Succeeded by [[Pontian]].

@@ -1,0 +1,1 @@
+Also known as [[Silas]]. A leading member of the Early Christian community in the 1st century, who according to the New Testament accompanied [[Paul the Apostle]] on his second missionary journey.

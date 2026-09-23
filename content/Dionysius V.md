@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1887 until his death in 1891. Succeeded by [[Neophytus VIII]].

@@ -1,0 +1,1 @@
+Greek counterpart to [[Noah]] in [[Apocalypse of Adam]], a figure of the flood.

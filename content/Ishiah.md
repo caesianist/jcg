@@ -1,0 +1,1 @@
+Son of [[Izrahiah]]. Also known as [[Isshiah]].

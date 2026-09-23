@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople three times: for a short time in 1466, from 1471 to 1475 and from 1482 to 1486. Succeeded by [[Dionysius I]] the first time, [[Raphael I]] the second time, [[Nephon II]] the third time. In 1484 he presided over the [[Synod of Constantinople of 1484]] which repudiated the [[Council of Florence]].

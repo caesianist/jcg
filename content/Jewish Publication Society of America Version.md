@@ -1,0 +1,1 @@
+The first Bible translation published by the Jewish Publication Society of America and the first translation of the Tanakh into English by a committee of Jews. 

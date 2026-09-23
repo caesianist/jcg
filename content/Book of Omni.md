@@ -1,0 +1,1 @@
+Attributed to multiple authors, one of which being [[Book of Omni]]

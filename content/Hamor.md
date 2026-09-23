@@ -1,0 +1,1 @@
+Father of [[Shechem]]. [[Simeon]] and [[Levi]], led their army and massacred [[Shechemites]], including [[Hamor]] and Shechem, by sword, freed [[Dinah]] from Shechem's house, and stole the women and treasures.

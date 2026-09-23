@@ -1,0 +1,1 @@
+The founder of the mystic rites on the island of Samothrace.

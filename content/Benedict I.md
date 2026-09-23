@@ -1,0 +1,1 @@
+Bishop of Rome from 2 June 575 to his death on 30 July 579. Succeeded by [[Pelagius II]].

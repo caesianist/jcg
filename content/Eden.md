@@ -1,0 +1,5 @@
+Can either refer to:
+
+Garden mentioned throughout [[Genesis 2]], [[Genesis 3]], [[Ezekiel 28]], and [[Ezekiel 31]]. Various suggestions have been made for its location, such as at the head of the Persian Gulf, in southern Mesopotamia where the [[Tigris]] and Euphrates rivers run into the sea; and in Armenia.  Others theorize that Eden was the entire Fertile Crescent or a region of substantial size in Mesopotamia. Genesis lists four rivers in association with the garden of Eden: [[Pishon]], [[Gihon]], Tigris, and the Euphrates (Perath in Hebrew). It also refers to the land of [[Cush]], translated/interpreted as Ethiopia, but thought by some to equate to Cossaea, a Greek name for the land of the Kassites. These lands lie north of Elam, immediately to the east of ancient Babylon, which, unlike Ethiopia, does lie within the region being described. In Antiquities of the Jews, the first-century Jewish historian [[Flavius Josephus]] identifies the Pishon as what "the Greeks called Ganges" and the Geon (Gihon) as the Nile.
+
+Son of [[Joah]].

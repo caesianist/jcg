@@ -1,0 +1,1 @@
+Bishop of Rome from 8 June 536 to his deposition in 537, a few months before his death. Succeeded by [[Vigilius]].

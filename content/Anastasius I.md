@@ -1,0 +1,1 @@
+Bishop of Rome from 27 November 399 to his death on 19 December 401. Succeeded by [[Innocent I]].

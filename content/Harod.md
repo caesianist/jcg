@@ -1,0 +1,1 @@
+Identified with the modern-day 'Ain Jalud, located in the [[Jezreel]] valley in northern Israel. 

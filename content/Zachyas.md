@@ -1,0 +1,1 @@
+Jewish schoolmaster who heard [[Jesus]] speaking.

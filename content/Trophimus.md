@@ -1,0 +1,1 @@
+Asiatic Christian who, with [[Tychicus]], accompanied the Apostle [[Paul]] on a part of his journey from Macedonia to Jerusalem. 

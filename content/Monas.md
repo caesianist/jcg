@@ -1,0 +1,1 @@
+Bishop of Milan from the end 3rd-century to early 4th-century, dying around 313 AD. Succeeded by [[Mirocles]].

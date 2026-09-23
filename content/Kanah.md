@@ -1,0 +1,1 @@
+A brook or stream that served as a boundary marker between the territories of [[Ephraim]] and [[Manasseh]]. 

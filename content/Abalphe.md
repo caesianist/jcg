@@ -1,0 +1,1 @@
+The female manifestation/likeness of the wind coming from the demon's mouth.

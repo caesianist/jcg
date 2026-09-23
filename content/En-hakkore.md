@@ -1,0 +1,1 @@
+After a victory over the [[Philistines]], where [[Samson]] slew a thousand men with the jawbone of a donkey, he became extremely thirsty. God responded to Samson's plea by miraculously providing water, then this area was named such.

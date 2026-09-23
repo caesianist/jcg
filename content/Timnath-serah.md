@@ -1,0 +1,1 @@
+Located in the hill country of [[Ephraim]]. It was north of Mount [[Gaash]]. It also served as the burial place for [[Joshua]].

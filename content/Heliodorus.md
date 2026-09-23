@@ -1,0 +1,1 @@
+Can refer to multiple bishops but is a bishop of an unknown see in [[Gospel of Pseudo-Matthew]].

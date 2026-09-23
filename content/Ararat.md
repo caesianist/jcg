@@ -1,0 +1,1 @@
+Region mentioned in [[Genesis 8]]. The term was used to designate the region in which [[Noah]]'s Ark comes to rest after the Great Flood. Since the Middle Ages the "mountains of Ararat" began to be identified with a mountain in present Turkey known as Masis or Ağrı Dağı; the mountain became known as Mount Ararat, but this is likely not the location.

@@ -1,0 +1,1 @@
+Mentioned by name in [[Genesis 4]], first woman created by God for [[Adam]], as well as being his wife.

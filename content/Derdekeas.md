@@ -1,0 +1,1 @@
+Saviour voice in [[Paraphrase of Shem]] who explains truths to [[Shem]].

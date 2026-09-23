@@ -1,0 +1,1 @@
+The Babylonian name given to [[Daniel]] by [[Nebuchadnezzar]] meaning "Bel protects the king" or "Bel's steward."

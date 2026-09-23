@@ -1,0 +1,1 @@
+Proconsul of [[Cyprus]] under [[Claudius]] (r. 41-54 AD).

@@ -1,0 +1,1 @@
+The succession of printed Greek New Testament texts starting with Erasmus' Novum Instrumentum omne (1516) and including the editions of Stephanus, Beza, the Elzevir house, Colinaeus and Scrivener up to 1633.

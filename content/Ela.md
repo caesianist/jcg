@@ -1,0 +1,1 @@
+A king of Israel for two years, the son of [[Baasha]]. 

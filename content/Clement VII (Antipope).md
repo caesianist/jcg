@@ -1,0 +1,1 @@
+Elected to the papacy as by the cardinals who opposed [[Urban VI]] and was the first antipope residing in Avignon, France. His election led to the [[Western Schism]].

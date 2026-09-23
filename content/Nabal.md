@@ -1,0 +1,1 @@
+Man in [[Maon]] whose property was in [[Carmel]], husband to [[Abigail]].

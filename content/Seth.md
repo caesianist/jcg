@@ -1,0 +1,1 @@
+Mentioned first in [[Genesis 4]]. Third son of [[Adam]] and [[Eve]] after the murder of [[Abel]] by [[Cain]]. He is venerated/seen as heavenly or special in many forms of Gnosticism.

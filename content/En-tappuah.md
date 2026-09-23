@@ -1,0 +1,1 @@
+Located in the region allotted to the tribe of [[Manasseh]], although the town itself was on the border with [[Ephraim]].

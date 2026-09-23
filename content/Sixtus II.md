@@ -1,0 +1,1 @@
+Bishop of Rome from 31 August 257 until his death on 6 August 258. Succeeded by [[Dionysius]].

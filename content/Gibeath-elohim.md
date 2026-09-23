@@ -1,0 +1,1 @@
+Meaning, “hill of God.” This may be the same as [[Geba]] or a hill overlooking Geba or even with [[Gibeah]]. It is the site where [[Saul]] received the third sign from God that he had been selected king of Israel. 

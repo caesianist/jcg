@@ -1,0 +1,1 @@
+In [[Joshua 19]], fortified town of [[Naphtali]].

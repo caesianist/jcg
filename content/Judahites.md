@@ -1,0 +1,1 @@
+Those inhabiting Kingdom of [[Judah]] or descending from the tribe of Judah.

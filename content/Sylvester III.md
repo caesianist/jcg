@@ -1,0 +1,1 @@
+Bishop of Rome and ruler of the Papal States from 20 January to 10 March 1045. Succeeded by [[Benedict IX]].

@@ -1,0 +1,1 @@
+Inhabitants of [[Ephrath]] (known as Bethlehem), husband of [[Orpah]].

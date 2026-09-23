@@ -1,0 +1,1 @@
+Titan condemned to hold up the heavens or sky for eternity after the ten year war between the Titans and Olympians.

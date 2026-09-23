@@ -1,0 +1,1 @@
+Tribe among the [[Hagrites]] mentioned only in [[1 Chronicles 5]]. They were mentioned as having been conquered by [[Reuben]], [[Gad]], and the half tribe of [[Manasseh]].

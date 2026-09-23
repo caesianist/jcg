@@ -1,0 +1,1 @@
+An early Christian in Asia Minor who was the recipient of a private letter from [[Paul the Apostle]] which forms part of the Christian New Testament, [[Epistle to Philemon]].

@@ -1,0 +1,1 @@
+Head of the Catholic Church from 7 August 1316 to his death, in December 1334, during his papacy he canonized [[Thomas Aquinas]]. Succeeded by [[Benedict XII]].

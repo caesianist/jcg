@@ -1,0 +1,1 @@
+When [[Jeremiah]] had been thrown into a cistern and left to die, Ebed-Melech came to rescue him. As a result, Jeremiah relayed God's message to him that he would survive the coming destruction of Jerusalem. The name Ebed-Melech combines the Hebrew words servant and king, but scholars disagree on whether this combination is intended to be a title or personal name.

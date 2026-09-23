@@ -1,0 +1,1 @@
+Son of [[Peleth]], was a participant in a rebellion against [[Moses]], was sent to [[Sheol]].

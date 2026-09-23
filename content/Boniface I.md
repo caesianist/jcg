@@ -1,0 +1,1 @@
+Bishop of Rome from 28 December 418 to his death on 4 September 422. Succeeded by [[Celestine I]].

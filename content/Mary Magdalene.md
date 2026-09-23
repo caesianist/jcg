@@ -1,0 +1,1 @@
+Travelled with [[Jesus]] as one of his followers and was a witness to his crucifixion and resurrection.

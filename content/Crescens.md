@@ -1,0 +1,1 @@
+Disciple of [[Jesus]] and friend of [[Paul]], missionary in [[Galatia]].

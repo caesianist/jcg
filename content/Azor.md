@@ -1,0 +1,1 @@
+Son of [[Eliakim]], father of [[Zadok]].

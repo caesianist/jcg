@@ -1,0 +1,1 @@
+Wife of [[Jehoiakim]] and the mother of [[Jehoiachin]].

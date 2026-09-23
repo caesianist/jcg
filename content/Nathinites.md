@@ -1,0 +1,1 @@
+A name given to the Temple assistants in ancient Jerusalem. 

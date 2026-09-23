@@ -1,0 +1,1 @@
+Archbishop of Constantinople for a brief period in 370. Succeeded by [[Maximus I]].

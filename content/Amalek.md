@@ -1,0 +1,1 @@
+A nation described in the Hebrew Bible as a staunch enemy of the [[Israelites]]. Named after the nation's founder, who is a grandson of [[Esau]]; his descendants, the [[Amalekites]]; or the territories of Amalek, which they inhabited.

@@ -1,0 +1,1 @@
+Lord over heat in [[Apocryphon of John]].

@@ -1,0 +1,1 @@
+Bishop of Rome from 24 December 640 to his death on 12 October 642. Succeeded by [[Theodore I]].

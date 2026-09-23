@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople (July 1652 – April 1653 and March 1654 – March 1655). Succeeded by [[Joannicius II]] both times.

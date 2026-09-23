@@ -1,0 +1,1 @@
+Name (or title) of a deity (or deities) worshipped by the [[Canaanites]] in [[Shechem]]. It is not clear whether they are actually one god, nor whether they are separate forms of [[Baal]].

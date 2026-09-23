@@ -1,0 +1,1 @@
+Son of [[Iddo]], one of the twelve commissariat officers appointed by [[Solomon]] to districts of his kingdom to raise supplies by monthly rotation for his household. He was appointed to the district of [[Mahanaim]].

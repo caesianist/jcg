@@ -1,0 +1,1 @@
+Bishop of Rome from 2 January 533 to his death on 8 May 535. Succeeded by [[Agapetus I]]. 

@@ -1,0 +1,1 @@
+One of the priestly lineages in the day of [[Joiakim]].

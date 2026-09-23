@@ -1,0 +1,1 @@
+A village east of Jerusalem, on the road to the Jordan valley, close to the [[Mount of Olives]]. Another name for [[Baharum]].

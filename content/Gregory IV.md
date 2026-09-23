@@ -1,0 +1,1 @@
+Bishop of Rome and leader of the Papal States from October 827 to his death on 25 January 844. Succeeded by [[Sergius II]].

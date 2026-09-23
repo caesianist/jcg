@@ -1,0 +1,1 @@
+Village or settlement located in the region of [[Benjamin]], near Jerusalem.

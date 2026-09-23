@@ -1,0 +1,1 @@
+The royal steward during the reign of king [[Hezekiah]] before being replaced by [[Eliakim]].

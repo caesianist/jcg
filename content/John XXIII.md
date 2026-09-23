@@ -1,0 +1,1 @@
+Head of the Catholic Church and sovereign of Vatican City from 28 October 1958 until his death on 3 June 1963. Convoked the [[Second Vatican Council]] Succeeded by [[Paul VI]]. 

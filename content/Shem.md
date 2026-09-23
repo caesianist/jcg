@@ -1,0 +1,1 @@
+Mentioned in [[Genesis 5]], [[Genesis 6]], [[Genesis 7]], [[Genesis 8]], [[Genesis 9]], [[Genesis 10]], and [[Genesis 11]]. Son of [[Noah]], father of [[Elam]], [[Asshur]], [[Arpachshad]] (or Arphaxad), [[Lud]], and [[Aram]]. Siblings of [[Ham]] and [[Japheth]].

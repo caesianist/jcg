@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 14 December 928 to August 931, dying in 933. Succeeded by [[Theophylact]].

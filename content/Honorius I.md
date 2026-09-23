@@ -1,0 +1,1 @@
+ bishop of Rome from his consecration on 27 October 625 until his death on 12 October 638. Succeeded by [[Severinus]].

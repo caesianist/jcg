@@ -1,0 +1,1 @@
+Council convoked by [[Martin V]] shortly before his death in February 1431, afterwards became known as [[Council of Florence]]. At stake was the greater conflict between the conciliar movement and the principle of papal supremacy.

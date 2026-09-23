@@ -1,0 +1,1 @@
+A Pharisee and a member of the Sanhedrin who is drawn to hear [[Jesus]]'s teachings. Nicodemus is not mentioned in the synoptic Gospels, but only by [[John the Apostle]]. He is claimed to be the author of [[Gospel of Nicodemus]].

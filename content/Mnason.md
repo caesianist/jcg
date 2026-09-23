@@ -1,0 +1,1 @@
+Christian from [[Cyprus]] who offered hospitality to [[Luke]] the evangelist, [[Paul]] the apostle and their companions.

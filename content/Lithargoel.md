@@ -1,0 +1,1 @@
+A heavenly revealer/angelic figure who comes to [[Peter the Apostle]] and [[James the Just]] and teaches them about salvation and spiritual knowledge in [[Apocryphon of James]]. Also appears in [[Acts of Peter]].

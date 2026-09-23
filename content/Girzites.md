@@ -1,0 +1,1 @@
+Inhabitants of the southern regions of [[Canaan]], near the border of Egypt.

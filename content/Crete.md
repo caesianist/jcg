@@ -1,0 +1,1 @@
+Located approximately 100 km (62 mi) south of the Peloponnese, and about 300 km (190 mi) southwest of Anatolia.

@@ -1,0 +1,1 @@
+Mountain range in Israel. It overlooks the Harod Valley (the eastern part of the larger [[Jezreel]] Valley) to the north, and the Jordan Valley to the southeast and to the west.

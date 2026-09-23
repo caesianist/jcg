@@ -1,0 +1,1 @@
+Son of [[David]]'s sister, [[Zeruiah]]. Brothers were [[Asahel]] and [[Joab]].

@@ -1,0 +1,1 @@
+Archbishop of Milan from around 328 to 343 AD. Succeeded by [[Eustorgius I]].

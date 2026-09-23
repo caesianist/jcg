@@ -1,0 +1,1 @@
+Father of [[Zophah]], [[Imna]], [[Shelesh]], and [[Amal]].

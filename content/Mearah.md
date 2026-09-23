@@ -1,0 +1,1 @@
+Believed to be located in the region of ancient Phoenicia, which corresponds to modern-day Lebanon. 

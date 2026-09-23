@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople for five times, in 1671–1673, 1676–1679, 1682–1684, 1686–1687, and 1693–1694. Succeeded by [[Gerasimus II]], [[Athanasius IV]], [[Parthenius IV]], [[James (Constantinople)]], and [[Callinicus II]].

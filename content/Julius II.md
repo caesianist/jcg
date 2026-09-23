@@ -1,0 +1,1 @@
+Head of the Catholic Church and leader of the Papal States from 1503 to his death, in February 1513. He convoked the [[Fifth Council of the Lateran]]. Succeeded by [[Leo X]].

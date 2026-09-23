@@ -1,0 +1,1 @@
+Son of [[Elimelech]] and [[Chilion]], husband of [[Orpah]].

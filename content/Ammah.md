@@ -1,0 +1,1 @@
+Situated somewhere in the central hill country of ancient Israel, the name "Ammah" is derived from a Hebrew word that can mean "a cubit" or "a measure," but in this context, it refers to a specific hill or elevation.

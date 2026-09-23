@@ -1,0 +1,1 @@
+Inhabitants of [[Corinth]], which was a city-state (polis) on the Isthmus of Corinth, the narrow stretch of land that joins the Peloponnese peninsula to mainland Greece, roughly halfway between Athens and Sparta. [[Paul the Apostle]] wrote to the Corinthians through [[1 Corinthians]] and [[2 Corinthians]].

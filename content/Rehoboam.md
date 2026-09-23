@@ -1,0 +1,1 @@
+Son of [[Solomon]] who harshly led and resulted in the [[Israelites]] rejecting the Davidic line, father of [[Jeush]]. 

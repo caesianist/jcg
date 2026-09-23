@@ -1,0 +1,1 @@
+A king of the [[Amalekites]], taken prisoner by [[Saul]], and killed by [[Samuel]].

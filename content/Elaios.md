@@ -1,0 +1,1 @@
+Androgynous power encompassing jealousy in [[On the Origin of the World]].

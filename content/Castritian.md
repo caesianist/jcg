@@ -1,0 +1,1 @@
+Bishop of Milan in mid 3rd-century. Succeeded by [[Calimerius]].

@@ -1,0 +1,1 @@
+The ninth king of [[Judah]] and the son and successor of [[Jehoash]]. His mother was [[Jehoaddin]] and his son was [[Uzziah]].

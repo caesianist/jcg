@@ -1,0 +1,1 @@
+Archbishop of Constantinople in 380, where he became a rival of [[Gregory of Nazianzus]] and was succeeded by him.

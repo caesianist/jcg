@@ -1,0 +1,1 @@
+City built during the first century BC by [[Herod the Great]], who named it in honour of his father, [[Antipater]]. 

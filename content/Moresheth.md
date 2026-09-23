@@ -1,0 +1,1 @@
+A town of the tribe of [[Judah]] in ancient Israel, it was located in the [[Shephelah]] region between [[Lachish]] and [[Achzib]].

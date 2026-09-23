@@ -1,0 +1,1 @@
+Head of the Catholic Church and leader of the Papal States from 22 February 1281 until his death on 22 March 1285. Succeeded by [[Honorius IV]].

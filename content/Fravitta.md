@@ -1,0 +1,1 @@
+Patriarch of Constantinople (488–489). Succeeded by [[Euphemius]].

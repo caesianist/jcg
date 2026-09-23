@@ -1,0 +1,1 @@
+Youngest son of [[Mosiah II]]. Unbeliever who tried to destroy the Church, was converted by an angel, and traveled through [[Zarahemla]] with brothers to repair injuries they had done. Left in charge of the Church when [[Alma II]] and companions began their missionary journey.

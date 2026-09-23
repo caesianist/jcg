@@ -1,0 +1,1 @@
+One of the cities of [[Hadadezer]].

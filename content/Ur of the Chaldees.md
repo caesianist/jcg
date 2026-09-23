@@ -1,0 +1,1 @@
+Also known as an [[Ur of the Chaldeans]]. Birthplace of [[Abraham]].

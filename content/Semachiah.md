@@ -1,0 +1,1 @@
+Connected to the family of [[Shemaiah]] and one of the gatekeepers of the lord.

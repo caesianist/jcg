@@ -1,0 +1,1 @@
+Location near [[Mount Ephraim]]. 

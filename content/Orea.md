@@ -1,0 +1,1 @@
+Wife of [[Noah]] in [[Hypostasis of the Archons]], she is portrayed as a woman who refuses the sexual advances of the archon (the ruler/creator of the material world). Because she refuses him, the archon becomes hostile toward her.

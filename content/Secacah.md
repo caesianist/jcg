@@ -1,0 +1,1 @@
+Located in the wilderness and desert of [[Judah]].

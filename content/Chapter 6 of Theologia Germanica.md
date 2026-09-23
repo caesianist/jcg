@@ -1,0 +1,10 @@
+CHAPTER VI
+How that which is best and noblest should also be loved above all Things by us, merely because it is the best.
+
+ 
+
+A Master called [[Boetius]] saith, “It is of sin that we do not love that which is Best.” He hath spoken the truth. That which is best should be the dearest of all things to us; and in our love of it, neither helpfulness nor unhelpfulness, advantage nor injury, gain nor loss, honour nor dishonour, praise nor blame, nor anything of the kind should be regarded; but what is in truth the noblest and best of all things, should be also the dearest of all things, and that for no other cause than that it is the noblest and best.
+
+Hereby may a man order his life within and without. His outward life: for among the creatures one is better than another, according as the Eternal Good manifesteth itself and worketh more in one than in another. Now that creature in which the Eternal Good most manifesteth itself, shineth forth, worketh, is most known and loved, is the best, and that wherein the Eternal Good is least manifested is the least good of all creatures. Therefore when we have to do with the creatures and hold converse with them, and take note of their diverse qualities, the best creatures must always be the dearest to us, and we must cleave to them, and unite ourselves to them, above all to those which we attribute to God as belonging to Him or divine, such as wisdom, truth, kindness, peace, love, justice, and the like. Hereby shall we order our outward man, and all that is contrary to these virtues we must eschew and flee from.
+
+But if our inward man were to make a leap and spring into the Perfect, we should find and taste how that the Perfect is without measure, number or end, better and nobler than all which is imperfect and in part, and the Eternal above the temporal or perishable, and the fountain and source above all that floweth or can ever flow from it. Thus that which is imperfect and in part would become tasteless and be as nothing to us. Be assured of this: All that we have said must come to pass if we are to love that which is noblest, highest and best.

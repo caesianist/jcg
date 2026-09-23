@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 705 to 711. Succeeded by [[John VI (Constantinople)]].

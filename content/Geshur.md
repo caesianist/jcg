@@ -1,0 +1,1 @@
+A small Aramean kingdom located in the region of [[Bashan]].

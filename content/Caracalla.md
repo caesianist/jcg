@@ -1,0 +1,1 @@
+Roman emperor from 198 to 217 AD. Succeeded by [[Macrinus]].

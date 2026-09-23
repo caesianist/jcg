@@ -1,0 +1,1 @@
+Region that has a valley and people in [[Moses 7]], to the north of Shum is [[Canaan]].

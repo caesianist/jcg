@@ -1,0 +1,1 @@
+Bishop of Rome according to some sources from c. 218 to his death c. 222 or 223. Succeeded by [[Urban I]]. Antipope in opposition to him was [[Hippolytus]].

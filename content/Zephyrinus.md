@@ -1,0 +1,1 @@
+Bishop of Rome from the year 199 until his death on 20 December 217. Succeeded by [[Callixtus I]]. The antipope in opposition to him was [[Natalius]].

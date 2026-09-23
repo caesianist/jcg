@@ -1,0 +1,1 @@
+Christian saint, who is mentioned in the New Testament. He is mentioned in [[Paul the Apostle]]'s [[Epistle to Titus]] ([[Titus 3]]:12). He is believed to have served as the Bishop of Lystra, and to have been one of the Seventy Disciples.

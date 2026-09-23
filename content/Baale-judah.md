@@ -1,0 +1,1 @@
+Meaning "lords of Judah" or "citizens of Judah" was a city in the tribe of [[Judah]] from which [[David]] brought the ark into Jerusalem. Also known as [[Kiriath-jearim]].

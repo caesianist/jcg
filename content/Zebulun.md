@@ -1,0 +1,1 @@
+Son of [[Jacob]] and [[Leah]], father of [[Sered]], [[Elon]], [[Jahleel]].

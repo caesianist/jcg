@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 1 September 1271 to his death 10 January 1276. Convened the [[Second Council of Lyon]]. Succeeded by [[Innocent V]].

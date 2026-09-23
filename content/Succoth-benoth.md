@@ -1,0 +1,1 @@
+Babylonian deity, one of the gods brought to the Kingdom of Israel (Samaria) during the Neo-Babylonian Empire. In the ninth year of [[Hoshea]].

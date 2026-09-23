@@ -1,0 +1,1 @@
+Bishop of Rome from 27 June 678 until his death on 10 January 681. Succeeded by [[Leo II]].

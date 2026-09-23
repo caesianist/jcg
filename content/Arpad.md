@@ -1,0 +1,1 @@
+Aramaean Neo-Hittite city located in north-western Syria, north of Aleppo.

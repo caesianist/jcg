@@ -1,0 +1,1 @@
+The wife of [[Lehi]], and the mother of [[Laman]], [[Lemuel]], [[Sam]], and [[Nephi]]. 

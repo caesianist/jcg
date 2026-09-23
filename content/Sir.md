@@ -1,0 +1,1 @@
+Name of mountainous area used in [[Hypostasis of the Archons]] for the place [[Noah]] is instructed to set the ark upon, possibly identical with [[Seir]].

@@ -1,0 +1,1 @@
+Head of the Roman Catholic Church and ruler of the Papal States from 1061 to his death in 1073. Succeeded by [[Gregory VII]].

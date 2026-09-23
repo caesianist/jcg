@@ -1,0 +1,56 @@
+{
+  "id": "30436147-ac99-4fed-a4a0-30bae0dac1be",
+  "title": "in the note linked, autolink the first occurrence ",
+  "messages": [
+    {
+      "role": "user",
+      "content": {
+        "root": {
+          "children": [
+            {
+              "children": [
+                {
+                  "detail": 0,
+                  "format": 0,
+                  "mode": "normal",
+                  "style": "",
+                  "text": "in the note linked, autolink the first occurrence of every unique biblical name/location",
+                  "type": "text",
+                  "version": 1
+                }
+              ],
+              "direction": "ltr",
+              "format": "",
+              "indent": 0,
+              "type": "paragraph",
+              "version": 1,
+              "textFormat": 0,
+              "textStyle": ""
+            }
+          ],
+          "direction": "ltr",
+          "format": "",
+          "indent": 0,
+          "type": "root",
+          "version": 1
+        }
+      },
+      "promptContent": [
+        {
+          "type": "text",
+          "text": "\n\nin the note linked, autolink the first occurrence of every unique biblical name/location\n\n"
+        }
+      ],
+      "id": "d918fb9a-4702-4929-a00f-a83b7c8cefe7",
+      "mentionables": [
+        {
+          "type": "current-file",
+          "file": "Untitled 5448.md"
+        }
+      ]
+    }
+  ],
+  "createdAt": 1789510710291,
+  "updatedAt": 1789510710291,
+  "schemaVersion": 1
+}

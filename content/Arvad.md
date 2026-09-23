@@ -1,0 +1,1 @@
+A town in Syria on an eponymous island in the Mediterranean Sea. It is located 3 km (1.9 mi) from Tartus (the ancient Tortosa), Syria's second-largest port.

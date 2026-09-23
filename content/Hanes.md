@@ -1,0 +1,1 @@
+Location in southern Egypt.

@@ -1,0 +1,1 @@
+Father of [[Azrikam]], [[Bocheru]], [[Ishmael]], [[Sheariah]], [[Obadiah]], and [[Hanan]].

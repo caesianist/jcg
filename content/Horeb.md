@@ -1,0 +1,1 @@
+The mountain at which the Ten Commandments were given to [[Moses]] by God, associated with [[Sinai]].

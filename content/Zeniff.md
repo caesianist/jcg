@@ -1,0 +1,1 @@
+Father of king [[Noah]], first king of colonists from the [[Nephites]].

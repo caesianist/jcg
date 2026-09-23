@@ -1,0 +1,1 @@
+Bishop of Rome from 5 January 269 to his death on 30 December 274. Succeeded by [[Eutychian]].

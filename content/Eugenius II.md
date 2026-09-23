@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1821 until his death in 1822. Succeeded by [[Anthimus III]].

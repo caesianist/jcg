@@ -1,0 +1,1 @@
+Daughter of [[Laban]], sibling with [[Rachel]], one wife of [[Jacob]]. Mother of 6 sons being, [[Reuben]], [[Simeon]], [[Levi]], [[Judah]], [[Issachar]], and [[Zebulun]], and 1 daughter being [[Dinah]].

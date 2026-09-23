@@ -1,0 +1,1 @@
+Term meaning two things: double bitterness and double rebellion. Some scholars hold the idea that the dual expression is merely the intensity of the Lord while others say that it is an actual place.

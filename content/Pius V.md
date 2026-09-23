@@ -1,0 +1,1 @@
+Head of the Catholic Church and leader of the Papal States from 7 January 1566 to his death, in May 1572. Succeeded by [[Gregory XIII]].

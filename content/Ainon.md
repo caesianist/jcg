@@ -1,0 +1,1 @@
+Refers to [[Aenon]], a location associated with [[John the Baptist]]'s baptisms, traditionally identified with a site near [[Salim]].

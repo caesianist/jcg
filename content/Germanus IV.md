@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople, from 1842 to 1845 and from 1852 until his death on 16 September 1853. Succeeded by [[Anthimus IV]] and [[Anthimus VI]].

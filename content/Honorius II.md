@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 21 December 1124 to his death in 1130. Succeeded by [[Innocent II]].

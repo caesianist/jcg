@@ -1,0 +1,1 @@
+Born around 27 BC and died around 33 or 34 AD. Son of [[Herod the Great]] and [[Mariamne II]], was also the first husband of [[Herodias]].

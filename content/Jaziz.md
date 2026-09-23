@@ -1,0 +1,1 @@
+Member of the [[Hagrites]] who was overseer of the flocks under king [[David]].

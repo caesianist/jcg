@@ -1,0 +1,1 @@
+The memorial of [[Jacob]]'s and [[Laban]]'s covenant.

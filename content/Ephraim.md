@@ -1,0 +1,1 @@
+Son of [[Jacob]] and [[Asenath]], later considered a son of [[Joseph]], later has cities/towns allotted to the tribe of Ephraim, or the [[Ephraimites]].

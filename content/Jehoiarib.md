@@ -1,0 +1,1 @@
+Head of a family of priests, which was made the first of the twenty-four priestly divisions organized by King [[David]] .

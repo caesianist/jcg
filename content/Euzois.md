@@ -1,0 +1,1 @@
+Bishop of Byzantium for six years (148 – 154 AD). Succeeded by [[Laurence]].

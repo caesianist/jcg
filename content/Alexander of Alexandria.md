@@ -1,0 +1,1 @@
+19th Patriarch of Alexandria. During his patriarchate, he dealt with a number of issues facing the Church in that day. This included the issue of Arianism. He was the leader of the opposition to Arianism at the [[First Council of Nicaea]]. Wrote [[Epistles on Arianism and the Deposition of Arius]].

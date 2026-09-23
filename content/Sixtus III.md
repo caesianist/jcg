@@ -1,0 +1,1 @@
+Bishop of Rome from 31 July 432 to his death on 18 August 440. Succeeded by [[Leo I]].

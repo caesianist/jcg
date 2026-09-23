@@ -1,0 +1,1 @@
+The second bishop of Byzantium, from 38 to 54 AD according to tradition. Mentioned just one time in the New Testament as a person loved by [[Paul the Apostle]] in [[Romans 16]], and supposedly succeeded [[Andrew the Apostle]] as bishop. He was succeeded by [[Onesimus]].

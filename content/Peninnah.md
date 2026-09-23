@@ -1,0 +1,1 @@
+One of the wives of [[Elkanah]], she had children but the other did not.

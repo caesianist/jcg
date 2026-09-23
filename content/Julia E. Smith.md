@@ -1,0 +1,1 @@
+American women's suffrage activist who was the first woman to translate the Bible from its original languages into Englishm being the [[Julia E. Smith Parker Translation]]. 

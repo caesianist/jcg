@@ -1,0 +1,1 @@
+One of the cities captured by the Assyrians under [[Shalmaneser]]. Was also the center of the worship of the god [[Adrammelech]]. They also worshipped the god [[Anammelech]].

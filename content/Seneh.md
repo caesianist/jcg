@@ -1,0 +1,1 @@
+One of the two rocky crags that flanked the pass through which [[Jonathan]] and his armor-bearer approached the Philistine garrison. The other crag is named [[Bozez]]. This pass is located in the region of [[Michmash]].

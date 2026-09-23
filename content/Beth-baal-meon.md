@@ -1,0 +1,1 @@
+Situated in the region of [[Moab]], which is present-day Jordan. 

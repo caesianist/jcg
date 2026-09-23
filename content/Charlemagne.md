@@ -1,0 +1,1 @@
+King of the Franks from 768, King of the Lombards from 774, and Emperor of what is now known as the Carolingian Empire from 800 to his death in 814.

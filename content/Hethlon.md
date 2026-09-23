@@ -1,0 +1,1 @@
+City on the boundary of Palestine.

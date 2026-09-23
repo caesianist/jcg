@@ -1,0 +1,1 @@
+Nation in land of [[Canaan]].

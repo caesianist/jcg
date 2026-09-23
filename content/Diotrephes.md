@@ -1,0 +1,1 @@
+A person that is spoken negatively of in [[3 John]].

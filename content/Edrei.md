@@ -1,0 +1,1 @@
+City that was taken by the [[Israelites]] under the leadership of [[Moses]]. It is one of the two royal cities of [[Bashan]], the other being [[Ashtaroth]].

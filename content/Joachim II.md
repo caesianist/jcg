@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1860 to 1863 and from 1873 to 1878. Succeeded by [[Sophronius III]] and [[Joachim III]].

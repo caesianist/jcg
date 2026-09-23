@@ -1,0 +1,1 @@
+A fishing village established during the time of the Hasmoneans in Israel, located on the northern shore of the Sea of Galilee.

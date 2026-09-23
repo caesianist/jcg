@@ -1,0 +1,1 @@
+A city on the south-east coast of [[Cyprus]], where [[Saul]] and [[Barnabas]], on their first missionary journey, preached the word in one of the Jewish synagogues, of which there seem to have been several in that place. 

@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1475 to 1476. Succeeded by [[Maximus III]].

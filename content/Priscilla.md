@@ -1,0 +1,1 @@
+Woman of Jewish heritage and one of the earliest known Christian converts who lived in Rome.

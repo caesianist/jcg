@@ -1,0 +1,1 @@
+Thirteenth ecumenical council, as numbered by the Catholic Church and took place in 1245. It was the first ecumenical council to be held outside Rome's Lateran Palace after the [[Great Schism of 1054]]. Presided over by Pope [[Innocent IV]]. After this was the [[Second Council of Lyon]].

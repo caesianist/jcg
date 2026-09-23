@@ -1,0 +1,1 @@
+Father of [[Bela]] and [[Beor]], however there is some debate if these are two separate people.

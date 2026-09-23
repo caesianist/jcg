@@ -1,0 +1,1 @@
+Area next to where [[Uzzah]] died by God whilst transporting the ark of the covenant.

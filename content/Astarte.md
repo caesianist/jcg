@@ -1,0 +1,1 @@
+Usually called in the Bible in the plural "[[Astartes]]". Deity in the pantheon of [[Canaan]]. She was connected with some combination of the following spheres: war, sexuality, royal power, beauty, healing and hunting. Her symbol was the lion and she was also often associated with the horse and by extension chariots. The dove might be a symbol of her as well. 

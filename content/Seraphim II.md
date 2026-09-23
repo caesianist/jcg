@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1757 until 1761. Succeeded by [[Joannicius III]].

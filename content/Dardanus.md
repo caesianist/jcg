@@ -1,0 +1,1 @@
+Founder of the city of Dardanus at the foot of Mount Ida in the Troad.

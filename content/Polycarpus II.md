@@ -1,0 +1,1 @@
+Bishop of Byzantium from around 141 until his death in 144. Succeeded by [[Athenodorus]].

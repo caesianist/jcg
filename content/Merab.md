@@ -1,0 +1,1 @@
+Daughter of [[Saul]], Saul attempted to give her to [[David]] as a wife but this didn't fulfill, she was given instead to [[Adriel]].

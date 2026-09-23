@@ -1,0 +1,1 @@
+Priest who is the writer/recorder of the discourse in the [[First Apocalypse of James]].

@@ -1,0 +1,1 @@
+Activator of the left shin in [[Apocryphon of John]].

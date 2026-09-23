@@ -1,0 +1,1 @@
+Bishop of Rome from 867 to his death on 14 December 872. Succeeded by [[John VIII]].

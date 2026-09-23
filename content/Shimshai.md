@@ -1,0 +1,1 @@
+Scribe who wrote a letter against Jerusalem to King [[Artaxerxes]].

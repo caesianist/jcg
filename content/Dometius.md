@@ -1,0 +1,1 @@
+Bishop of Byzantium from about 272 to about 284. Succeeded by [[Rufinus]].

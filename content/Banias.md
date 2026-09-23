@@ -1,0 +1,1 @@
+Site in the Israeli-occupied Golan Heights, Syria near a natural spring. It had been inhabited for 2,000 years, until its Syrian population fled and their homes were destroyed by Israel following the 1967 Six-Day War. It is located at the foot of Mount [[Hermon]].

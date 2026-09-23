@@ -1,0 +1,1 @@
+City associated with the tribes of [[Reuben]] and [[Naphtali]], and later with [[Moab]].

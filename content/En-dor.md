@@ -1,0 +1,1 @@
+Situated in the territory of [[Issachar]], near the [[Jezreel]] Valley, and is identified with the modern village of Endur, located approximately seven miles southeast of Mount Tabor.

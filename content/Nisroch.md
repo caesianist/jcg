@@ -1,0 +1,1 @@
+Deity worshipped by [[Sennacherib]].

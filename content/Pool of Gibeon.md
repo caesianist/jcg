@@ -1,0 +1,1 @@
+A site in [[Gibeon]], archeological evidence locates the historical site of the pool in the village of Jib, in the West Bank Palestinian territories.

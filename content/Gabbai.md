@@ -1,0 +1,1 @@
+Member of [[Benjamin]] who helped repopulate Jerusalem after the Babylonian exile.

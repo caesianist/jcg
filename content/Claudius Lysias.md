@@ -1,0 +1,1 @@
+Roman tribune and the commander (chiliarch) of the Roman garrison in Jerusalem.

@@ -1,0 +1,1 @@
+Born December 19th, 1874, died March 28th, 1965. The author of numerous theological writings and a Bible publisher. Knoch founded the Concordant Publishing Concern and translated the [[Concordant Version]] of the Bible.

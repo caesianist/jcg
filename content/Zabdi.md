@@ -1,0 +1,1 @@
+Son of [[Zerah]] of the tribe of [[Judah]], father of [[Carmi]].

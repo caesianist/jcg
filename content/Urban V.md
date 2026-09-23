@@ -1,0 +1,1 @@
+Head of the Catholic Church from 28 September 1362 until his death on 19 December 1370. Succeeded by [[Gregory XI]].

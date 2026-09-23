@@ -1,0 +1,1 @@
+Those of direct patrilineal descent from [[Aaron]] and thus belong to the Tribe of [[Levi]], and/or of his priestly order.

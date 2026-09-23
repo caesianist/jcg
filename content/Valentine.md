@@ -1,0 +1,1 @@
+Bishop of Rome and leader of the Papal States for two months in 827. Succeeded by [[Gregory IV]].

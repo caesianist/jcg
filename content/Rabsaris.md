@@ -1,0 +1,1 @@
+One of the three officers whom the King of Assyria ([[Sennacherib]]) sent from [[Lachish]] with a threatening message to Jerusalem.

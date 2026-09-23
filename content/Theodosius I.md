@@ -1,0 +1,1 @@
+Roman emperor from 379 to 395. He won two civil wars and was instrumental in establishing the [[Nicene Creed]] as the orthodox doctrine for Nicene Christianity. 

@@ -1,0 +1,1 @@
+A town in Samaria, known as the site where [[Jesus]] met the Samaritan woman at [[Jacob]]’s well.

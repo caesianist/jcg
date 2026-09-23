@@ -1,0 +1,1 @@
+Located along the River Nile in the Delta region of Lower Egypt, and notable as a center of worship for the feline goddess [[Bastet]].

@@ -1,0 +1,1 @@
+Successor of [[Baal-hanan]] as a king of [[Edom]], being the last.

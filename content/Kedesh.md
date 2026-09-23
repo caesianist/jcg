@@ -1,0 +1,1 @@
+City of refuge and its association with the tribe of [[Naphtali]]. Located in the region of Galilee, situated in the northern part of ancient Israel, near the modern-day border of Lebanon. 

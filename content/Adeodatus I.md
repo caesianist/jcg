@@ -1,0 +1,1 @@
+Bishop of Rome from 19 October 615 to his death on 8 November 618. Succeeded by [[Boniface V]].

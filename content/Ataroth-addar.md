@@ -1,0 +1,1 @@
+Situated in the central highlands of ancient [[Canaan]], north of Jerusalem.

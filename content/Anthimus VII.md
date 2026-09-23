@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1895 until his resignation on 29 January 1897. Succeeded by [[Constantine V]].

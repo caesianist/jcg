@@ -1,0 +1,1 @@
+Roman emperor from 177 to 192. Succeeded by [[Pertinax (Emperor)]].

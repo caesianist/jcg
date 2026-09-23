@@ -1,0 +1,1 @@
+Bishop of Rome and head of the Catholic Church from 10 January 236 until his death on 20 January 250. Succeeded by [[Cornelius]].

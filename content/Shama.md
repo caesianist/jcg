@@ -1,0 +1,1 @@
+Son of [[Hotham]] who is one of [[David]]'s Mighty Warriors.

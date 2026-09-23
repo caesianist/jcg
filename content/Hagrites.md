@@ -1,0 +1,1 @@
+The inhabitants of the regions of [[Jetur]], [[Naphish]] and [[Nodab]] lying east of [[Gilead]]. Their name is understood to be related to that of the biblical [[Hagar]]. They lived a nomadic, animal-herding lifestyle in sparsely populated land east of the [[Israelites]].

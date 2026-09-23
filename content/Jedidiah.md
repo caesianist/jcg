@@ -1,0 +1,1 @@
+Name given to [[Solomon]] after birth by God.

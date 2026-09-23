@@ -1,0 +1,1 @@
+Another name for [[Simon bar Kokhba]].

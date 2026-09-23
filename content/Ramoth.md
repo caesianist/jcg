@@ -1,0 +1,1 @@
+Located in the region of [[Gilead]], east of the Jordan River, allotted to the [[Gadites]].

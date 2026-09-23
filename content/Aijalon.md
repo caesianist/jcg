@@ -1,0 +1,1 @@
+Area near [[Shephelah]]. Was the site of a conflict between [[Israelites]] and [[Philistines]] in [[1 Samuel 14]]. In [[Joshua 19]] was allotted to the [[Danites]], in [[1 Chronicles 6]], is a city of refuge for the [[Levites]].

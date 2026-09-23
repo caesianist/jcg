@@ -1,0 +1,1 @@
+City on the eastern side of the Vermio Mountains north of Mount Olympus. 

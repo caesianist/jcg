@@ -1,0 +1,1 @@
+City near [[Gibeon]] and [[Mizpah]].

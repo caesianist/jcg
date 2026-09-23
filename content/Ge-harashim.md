@@ -1,0 +1,1 @@
+The name "Ge-harashim" is derived from the Hebrew words "ge," meaning "valley," and "harashim," meaning "craftsmen" or "artisans." This indicates that the area was likely inhabited or frequented by skilled workers.

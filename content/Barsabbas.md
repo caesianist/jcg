@@ -1,0 +1,1 @@
+One of two candidates qualified to be chosen for the office of apostle after [[Judas Iscariot]] lost his apostleship when he betrayed [[Jesus]] and died by suicide. [[Matthias]] was chosen over him.

@@ -1,0 +1,1 @@
+Son of [[Zeruiah]], was the nephew of King [[David]] and the commander of his army. Had two brothers, [[Asahel]] and [[Abishai]].

@@ -1,0 +1,1 @@
+Name meaning "[[Nabu]], watch over my heir", was the second king of the Neo-Babylonian Empire, ruling from 605 BC to his death in 562 BC. 

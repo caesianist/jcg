@@ -1,0 +1,1 @@
+Activator of the fingers of the right hand in [[Apocryphon of John]].

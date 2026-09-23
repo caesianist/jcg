@@ -1,0 +1,1 @@
+Bishop of Rome elected in October 638. His pontificate was finally sanctioned on 28 May 640, but he died two months later. Succeeded by [[John IV]].

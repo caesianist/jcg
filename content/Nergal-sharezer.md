@@ -1,0 +1,1 @@
+A Babylonian official, likely the [[Rabmag]] mentioned in [[Jeremiah 39]] who is widely identified with King [[Neriglissar]], the ruler of Babylon from 559 to 556 BC.

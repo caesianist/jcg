@@ -1,0 +1,1 @@
+The pharaoh and basileus of the Ptolemaic Kingdom from 284 to 246 BC. He was the son of [[Ptolemy I]].

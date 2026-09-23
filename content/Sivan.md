@@ -1,0 +1,1 @@
+Ninth month of the civil year and the third month of the religious year on the Hebrew calendar. It is a month of 30 days. Sivan usually falls in May–June on the Gregorian calendar.

@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 30 August 1464 to his death in 1471. Succeeded by [[Sixtus IV]].

@@ -1,0 +1,1 @@
+Son of [[Judah]] and [[Bathsheba]].

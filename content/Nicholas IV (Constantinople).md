@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from December 1147 to March/April 1151. Succeeded by [[Theodotus II]].

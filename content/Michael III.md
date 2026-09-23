@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from January 1170 to March 1178. Succeeded by [[Chariton]].

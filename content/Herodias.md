@@ -1,0 +1,1 @@
+Born around 15 BC and died sometime after 39 AD. A princess of the Herodian dynasty of Judaea during the time of the Roman Empire. Christian writings connect her with the execution of [[John the Baptist]].

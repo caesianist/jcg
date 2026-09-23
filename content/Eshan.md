@@ -1,0 +1,1 @@
+City in southern part of [[Judah]].

@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 754 to 766. Succeeded by [[Nicetas I]].

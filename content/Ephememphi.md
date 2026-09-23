@@ -1,0 +1,1 @@
+Demon of pleasure in [[Apocryphon of John]].

@@ -1,0 +1,1 @@
+Revision of the [[Holman Christian Standard Bible]].

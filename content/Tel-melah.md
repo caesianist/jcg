@@ -1,0 +1,1 @@
+The name "Tel-melah" is often understood to mean "mound of salt" or "hill of salt," one of the towns which Jewish exiles came from.

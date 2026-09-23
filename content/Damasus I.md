@@ -1,0 +1,1 @@
+Bishop of Rome from October 366 to his death in 384 AD. He presided over the [[Council of Rome of 382]], which established the canon, or official list, of sacred scripture. Succeeded by [[Siricius]].

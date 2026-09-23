@@ -1,0 +1,1 @@
+Descendants of [[Jerahmeel]], the firstborn son of [[Hezron]], who was a grandson of [[Judah]].

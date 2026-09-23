@@ -1,0 +1,1 @@
+Town near [[Shiloh]], on the north side of [[Bethel]], it has been identified with Al-Lubban ash-Sharqiya, to the south of Nablus.

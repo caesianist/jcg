@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 688 to 693. Succeeded by [[Callinicus I]].

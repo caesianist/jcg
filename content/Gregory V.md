@@ -1,0 +1,1 @@
+Bishop of Rome and nominal ruler of the Papal States from 2 April 999 to 12 May 1003. Succeeded by [[Sylvester II]].

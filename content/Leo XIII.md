@@ -1,0 +1,1 @@
+Head of the Catholic Church from 1878 until his death in 1903. Succeeded by [[Pius X]].

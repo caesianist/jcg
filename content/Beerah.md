@@ -1,0 +1,1 @@
+Son of [[Baal]], one of the people [[Tilgath-pilneser]] brought into exile in Assyria. 

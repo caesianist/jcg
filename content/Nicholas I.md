@@ -1,0 +1,1 @@
+Bishop of Rome from 24 April 858 until his death on 13 November 867. Succeeded by [[Adrian II]].

@@ -1,0 +1,1 @@
+Bishop of Rome from 24 November 642 to his death on 14 May 649. Succeeded by [[Martin I]].

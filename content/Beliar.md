@@ -1,0 +1,1 @@
+Referred to "wickedness" or "worthlessness", occurring several times in the Old Testament. Later, in the Dead Sea Scrolls (c. 300 BCE), Belial was personified as a demon.

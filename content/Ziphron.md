@@ -1,0 +1,1 @@
+Unknown location, a point on the northern boundary of the land that God instructed [[Moses]] to allocate to the tribes of Israel. 

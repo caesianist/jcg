@@ -1,0 +1,1 @@
+The name of a place to which the people of Samaria were to be exiled. 

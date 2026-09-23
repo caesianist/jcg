@@ -1,0 +1,1 @@
+Located in the [[Shephelah]], the lowland region of [[Judah]].

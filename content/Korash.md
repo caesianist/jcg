@@ -1,0 +1,1 @@
+Deity of an area in [[Abraham 1]].

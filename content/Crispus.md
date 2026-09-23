@@ -1,0 +1,1 @@
+Leader of the synagogue in [[Corinth]] who converted to Christianity and was personally baptized by the Apostle [[Paul]].

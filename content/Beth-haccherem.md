@@ -1,0 +1,1 @@
+City within the tribe of [[Judah]].

@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 9 February 1621 until his death in 1623. Succeeded by [[Urban VIII]].

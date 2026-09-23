@@ -1,0 +1,1 @@
+Bishop of Byzantium for approximately seven years (129 – 136 AD), succeeded by [[Felix]].

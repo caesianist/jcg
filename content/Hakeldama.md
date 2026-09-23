@@ -1,0 +1,1 @@
+Aramaic name for a place in Jerusalem associated with [[Judas Iscariot]], one of the original twelve apostles of [[Jesus]].

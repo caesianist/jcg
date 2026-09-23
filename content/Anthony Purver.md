@@ -1,0 +1,1 @@
+Quaker preacher who translated the Bible to the [[Quaker Bible]].

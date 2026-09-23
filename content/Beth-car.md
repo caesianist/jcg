@@ -1,0 +1,1 @@
+Believed to mean "house of the lamb" or "house of the pasture," but debated.

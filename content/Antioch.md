@@ -1,0 +1,1 @@
+City located in northern Syria at the site of modern Antakya, Turkey. Founded in 300 BC.

@@ -1,0 +1,1 @@
+Bishop of Rome from 20 July 514 to his death on 6 August 523. Succeeded by [[John I]].

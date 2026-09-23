@@ -1,0 +1,1 @@
+8th-century BC prophet in Israel and the nominal primary author of the [[Book of Hosea]]. 

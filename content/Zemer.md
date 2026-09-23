@@ -1,0 +1,1 @@
+The word is often translated as "mountain sheep" or "wild sheep," city north of Lebanon.

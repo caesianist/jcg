@@ -1,0 +1,1 @@
+Celestial star cluster, commonly known as the Seven Sisters. In Greek tradition they were seven daughters of [[Atlas]] and [[Pleione]] who were transformed into stars. Some being companions of [[Artemis]], the goddess of the hunt. The names are: [[Maia]], [[Electra]], [[Taygete]], [[Alcyone]], [[Celaeno]], [[Sterope]], [[Merope]].

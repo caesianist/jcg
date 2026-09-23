@@ -1,0 +1,1 @@
+Son of [[Jedaiah]], father of [[Shiphi]].

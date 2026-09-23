@@ -1,0 +1,1 @@
+Situated in the region east of the Jordan River, within the territory that was occupied by the [[Amorites]] before the [[Israelites]]' arrival and then was allotted to the tribe of [[Reuben]].

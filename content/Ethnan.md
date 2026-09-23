@@ -1,0 +1,1 @@
+Son of [[Helah]], father of [[Tekoa]].

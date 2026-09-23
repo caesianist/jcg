@@ -1,0 +1,1 @@
+Son of [[Ham]]. Father of [[Ludim]], [[Anamim]], [[Lehabim]], [[Naphtuhim]], [[Pathrusim]], [[Casluhim]], and [[Caphtorim]].

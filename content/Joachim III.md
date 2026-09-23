@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1878 to 1884 and from 1901 to 1912. Succeeded by [[Joachim IV]] and [[Germanus V]].

@@ -1,0 +1,1 @@
+Father of [[Josech]], son of [[Joanan]].

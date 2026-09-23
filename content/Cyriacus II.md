@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople (596–606). Succeeded by [[Thomas I]].

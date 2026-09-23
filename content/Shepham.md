@@ -1,0 +1,1 @@
+Location near [[Hazar-enan]] and the Promised Land.

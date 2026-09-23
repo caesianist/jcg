@@ -1,0 +1,1 @@
+Daughter of [[Bethuel]], wife of [[Isaac]], mother of [[Jacob]] and [[Esau]]. 

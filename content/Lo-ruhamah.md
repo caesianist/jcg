@@ -1,0 +1,1 @@
+Daughter of [[Gomer]] and [[Hosea]].

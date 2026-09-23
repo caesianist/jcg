@@ -1,0 +1,1 @@
+Maternal grandfather of [[Joseph Smith Jr.]].

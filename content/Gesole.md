@@ -1,0 +1,1 @@
+Creator of the stomach in [[Apocryphon of John]].

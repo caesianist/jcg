@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 693 to 705. Succeeded by [[Kyros]].

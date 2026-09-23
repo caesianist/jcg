@@ -1,0 +1,1 @@
+Means “lot,” a small stone used for casting lots, and it is mentioned where [[Haman]] casts the [[Pur]] to choose a date to destroy the Jews.

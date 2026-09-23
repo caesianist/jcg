@@ -1,0 +1,1 @@
+A name for the chief of the Archons, this ignorant or defective deity, also associated with [[Saklas]] or [[Yaldabaoth]].

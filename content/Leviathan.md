@@ -1,0 +1,1 @@
+A giant sea serpent noted in theology and mythology. It is referenced in the Hebrew Bible, as a metaphor for a powerful enemy, notably Babylon.

@@ -1,0 +1,1 @@
+A Hebrew surname that is presumably derived directly from the English transliteration of יהושע, which means roughly "YHWH rescues" or "YHWH is salvation". A name given to [[Jesus]] and was the Hebrew name for [[Joshua]].

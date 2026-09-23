@@ -1,0 +1,1 @@
+Derived from two Hebrew words: "Baal," meaning "lord" or "master," and "Hamon," which can mean "multitude" or "abundance." City related to [[Solomon]].

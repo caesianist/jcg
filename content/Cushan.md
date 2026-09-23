@@ -1,0 +1,1 @@
+Associated with the land of [[Cush]], which is traditionally identified with regions south of Egypt, including parts of modern-day Sudan and Ethiopia. 

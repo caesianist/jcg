@@ -1,0 +1,1 @@
+Member of second tribe in [[Letter of Aristeas]].

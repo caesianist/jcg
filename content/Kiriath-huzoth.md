@@ -1,0 +1,1 @@
+Area near [[Arnon]] and [[Ir-moab]].

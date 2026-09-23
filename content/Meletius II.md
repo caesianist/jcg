@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople during the period 1768–1769. Succeeded by [[Theodosius II (Constantinople)]].

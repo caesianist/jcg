@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 21 January 837 to 4 March 843, died before 867. Succeeded by [[Methodius I]].

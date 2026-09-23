@@ -1,0 +1,1 @@
+Situated in the region of the [[Jezreel]] Valley

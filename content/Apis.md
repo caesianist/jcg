@@ -1,0 +1,1 @@
+A sacred bull or multiple sacred bulls worshiped in the [[Memphis]] region, identified as the son of [[Hathor]], a primary deity in the pantheon of ancient Egypt. 

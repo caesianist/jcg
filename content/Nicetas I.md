@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 766 to 780. Succeeded by [[Paul IV (Constantinople)]].

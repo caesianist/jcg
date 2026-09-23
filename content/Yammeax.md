@@ -1,0 +1,1 @@
+Activator of the neck in [[Apocryphon of John]].

@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States for two months in 1187. Initiated the [[Third Crusade]]. Succeeded by [[Clement III]].

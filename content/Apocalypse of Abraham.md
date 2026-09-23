@@ -1,0 +1,171 @@
+An apocalyptic Jewish pseudepigrapha (a text whose claimed authorship is uncertain) based on biblical [[Abraham]] narratives. It was probably composed in the first or second century, between 70–150 AD.
+
+TEXT
+
+1. Then a voice came to me speaking twice, "Abraham! Abraham!" and I said, "Here I am!" And He said, "Behold it is I, fear not for I am with you, for I AM before the ages, even the Mighty God who created the first light of the world. I am your shield and your helper."
+
+2. "Go, take me a young heifer of three years, and a she-goat of three years, and a ram of three years, a turtledove and a pigeon, and bring me a pure sacrifice. And in this sacrifice I will lay before you the ages to come, and make known to you what is reserved, and you shall see great things that you have not hitherto seen:
+
+3. because you have loved to search me out, and I have named you 'my friend.' (The text here in fact says ‘my lover.') But abstain from every form of food that comes forth out of the fire, and from the drinking of wine, and from anointing yourself with oil, for forty days, and then set forth for me the sacrifice which I have commanded you, in a place which I will show you on a high mountain, and there I will show you the ages which have been created and established by my word, and I will make known to you what shall come to pass in them on those who have done evil and righteousness in the generations of men."
+
+4. And it came to pass when I heard the voice of Him who spoke such words to me, and I looked here and there, I found no breath in me, and my spirit was frightened, and my soul seemed as departed from me, for I fell down as a stone, as a dead man upon the earth, and had no more strength to stand. And while I was thus lying with my face towards the earth, I heard the voice of the Holy One speaking, "Go, [[Jaoel]], and by means of my ineffable Name raise up yonder man and strengthen him , so that he recovers from his trembling.
+
+5. And the angel whom He had sent came to me in the likeness of a man and grasped me by my right hand and set me up upon my feet and said to me, "Stand up Abraham, friend of God who loves you; let not the trembling of man seize you! For lo! I have been sent to you to strengthen you and bless you in the name of God, who loves you, the Creator of the celestial and the terrestrial. Be fearless and hasten to Him. I am called Jaoel by Him who moves those who exist with me on the seventh expanse over the heavens, a power in virtue of the ineffable Name that is dwelling in me. I am the one who has been given to restrain, according to His commandment, the threatening attacks of the Living Ones of the Cherubim against one another, and to teach those who carry Him, the song of the seventh hour of the night of man. (These 'attacks' may be seen as the rivalry of praise in heaven, a thing that God occasionally has to restrain, but which should not be thought to be in any way a 'fallen' action.
+
+6. I am ordered to restrain the Leviathan, for every single attack and menace of every single reptile are subject unto me. I am he who has been commissioned to loosen [[Hades]], and destroy him who stares at the dead. (This 'staring' is an attitude of Satan, whereby he paralyses and victimises the dead.) I have been sent to bless you now, and the land which the Eternal One, whom you have invoked, has prepared for you, and for your sake I have wended my way upon earth.
+
+7. Stand up, Abraham! Go without fear; be right glad and rejoice, and I am with you! For age-lasting honour has been prepared for you by the Eternal One. Go, fulfil the sacrifices commanded. For lo! I have been appointed to be with you, and with the generations that will spring from you, and with me [[Michael]] blesses you forever. Be of good cheer and go!"
+
+8. And I rose up and saw him who had grasped me by the right hand and set me upon my feet, and the appearance of his body was like sapphire, and the look of his countenance like chrysolite, and the hair of his head like snow, and the turban on his head like the appearance of the rainbow, and the clothing of his garments like purple, and a golden sceptre was in his right hand,
+
+9. And he said to me, "Abraham!" And I said, "Here I am, your servant." And he said, "Let not my appearance frighten you, nor my speech, that your soul be not troubled. Come with me, and I will be with you, visible, until the sacrifice, but after the sacrifice always invisible. Be of good cheer, and come!"
+
+10. And we went, the two of us together for forty days and nights, and I ate no bread and drank no water, because my food and my drink was to see the angel who was with me, and to hear his speech. And we came to the Mount of God, Mount [[Horeb]], and I said to the angel, "Singer of the Eternal One! I have no sacrifice with me, nor am I aware of the place of an altar on the mountain; how can I bring a sacrifice?" And he said to me, "Look around you." And when I looked around, there following us were all the prescribed animals, the young heifer, the she goat, the ram, the turtledove and the pigeon.
+
+11. And the angel said to me, "Abraham!" And I said, "Here am I." And he said, "Slaughter all these animals, and divide them into halves, the one against the other, but do not sever the birds. And give these to the men (i.e. angels) whom I will show you, standing by you, for these are the altar upon the Mountain, to offer a sacrifice to the Eternal but the turtle dove and the pigeon give to me, for I will ascend upon the wings of the bird, so that you may be able to see in heaven, and upon earth, and in the sea, and in the abyss, and in the under-world, and in the Garden of [[Eden]], and in its rivers, and in the fullness of the whole world and its circle - you shall gaze into them all."
+
+12. And I did everything according to the command of the angel, and gave the angels who had come to us, the divided animals, but the angel Jaoel took the birds. And I waited until the evening sacrifice. And there flew an unclean bird down upon the carcases, and I drove it away. And the unclean bird spoke to me and said, "Abraham, what are you doing upon these holy heights, where no man eats or drinks, nor is there upon them the food of man, but these heavenly beings consume everything with fire, and will burn you up. Forsake the man who is with you and flee, for if you ascend into the heights they will make an end of "
+
+13. And it came to pass, when I saw the bird speak, I said to the angel, "What is this, my lord?" And he said, "This is ungodliness; this is [[Azazel]]." And he said to it, "Disgrace upon you, Azazel! For Abraham's lot is in heaven, but yours is upon the earth. Because you have chosen and loved this for the dwelling place of your uncleanness therefore the Eternal Mighty Lord made you to be a dweller upon the earth, and through you every evil spirit of lies, and through you wrath and trials for the generations of ungodly men; for God, the Eternal Mighty One, has not permitted that the bodies of the righteous should be in your hand, in order that thereby the life of the righteous and the destruction of the unclean may be assured. Hear this my friend, and be gone with shame from me. For it has not been given to you to play the tempter in regard to all the righteous. Depart from this man! You cannot lead him astray. He is an enemy to you, and to those who follow you and love what you desire. For, behold, the vesture which in heaven was formerly yours has been set aside for him, and the mortality which was his has been transferred to you."
+
+14. And the angel said to me, "Know that from henceforth the Eternal One has chosen you. Be of good courage and use this authority so far as I bid you, against him who slanders the truth. Should I not be able to put him to shame that has scattered over the earth the secrets of heaven, and has rebelled against the Mighty One? Say to him, 'Become the burning coal of the furnace of the earth! Go, Azazel, into the inaccessible parts of the earth, for your heritage is to be over those who are with you, the ones brought forth with the stars and clouds, and with the men whose portion you are, even those who exist on account of your being. Justification shall be your enemy. Now depart from me by your perdition!
+
+15. And I uttered the words that the angel taught me. And then the angel said to me, "Answer him not! For God has given him power over those who answer him." And the angel spoke to me again saying, "However much he speak to you, answer him not, in order that he may have no free access to you, because the Eternal One has given him 'weight and will' in this respect." And I did that which was commanded me by the angel, and no matter how much he spoke to me, I answered him nothing whatsoever.
+
+16. And it came to pass when the sun went down, behold there was the smoke as of a furnace. And the angels who had the portions of the sacrifice ascended from the top of the smoking furnace. And the angel took me with his right hand and set me upon the right wing of the pigeon, and set himself on the left wing of the turtle dove, neither of which birds had been slaughtered, and he bore me to the borders of the flaming fire, and we ascended upon many winds to the heavens which were above the firmament. And I saw in the air on the heights to which we ascended, a strong light impossible to describe, and within the light a fiercely burning fire of people, many people, of male appearance, all constantly changing in aspect and form, running and being transformed, and worshipping and crying with a sound of words that I could not recognise.
+
+17. And I said to the angel, "Why have you now brought me up here, because my eyes cannot now see distinctly, and I am growing weak, and my spirit is departing from me?" And he said to me, "Remain close by me and do not fear, for the One whom you cannot see is now coming towards us with a great voice of holiness, even the Eternal One who loves you. But you yourself cannot see Him. But you must not allow your spirit to grow faint on account of the choirs of those who cry out, for I am with you to strengthen you."
+
+18. And while he was thus speaking fire came all about us, and there was a voice within the fire like the sound of many waters, like the sound of the sea in violent motion. And I desired to fall down there and worship, and I saw that the angel who was with me bowed his head and worshipped, but the surface of the high place where I seemed to be standing changed its inclination constantly, rolling as the great waves on the surface of the sea.
+
+19. And the angel said, "Worship, Abraham, and utter the song which I shall now teach you. Utter it without ceasing, that is, without pause, in one continuous strain from beginning to end. And the song which he taught me to sing had words appropriate to that sphere in which we then stood, for each sphere in heaven has its own song of praise, and only those who dwell there know how to utter it, and those upon earth cannot know or utter it except they be taught by the messengers of heaven. And the words of that song were of this import and signification -
+
+'Eternal, Mighty, Holy El, God only-supreme'
+
+You who are the Self-originated, the Beginningless One, Incorruptible,
+
+Spotless, Uncreated, Immaculate, Immortal, Self-complete, Self-illuminating,
+
+Without father, without mother, unbegotten,
+
+Exalted, Fiery One! Lover of men, Benevolent One, Bountiful One,
+
+Jealous over me, and very compassionate, Eli, My God,
+
+Eternal, Jehovah Zebaioth, Very Glorious El, El, El, El, Jah El!
+
+You are the One whom my soul has loved!
+
+Eternal Protector, Shining like Fire, Whose voice is like the thunder, Whose look is like the lightning,
+
+You are the All-seeing One, Who receives the prayers of all such as honour You,
+
+And turn away the requests of those who embarrass You with their provocations
+
+Who dissolves the confusions of the world,
+
+which arise from the ungodly and the righteous mixed up in the confusion of the corruptible age,
+
+And renewing the age of the righteous,
+
+Shine 0 Lord, shine as a light, even as that light with which you clothed Yourself on the first day of Creation,
+
+Shine as the Light of the Morning on Your creatures
+
+And let it be Day upon Earth,
+
+For in these heavenly dwelling places there is no need of any other light
+
+Than the unspeakable splendour from the light of Your Countenance,
+
+O answer my prayer, 0 be well-pleased with it,
+
+O accept my sacrifice which You have prepared for me to offer,
+
+Accept me favourably, and show me, teach me, all that You have promised!'
+
+20. And while I was still reciting the song, the mouth of the fire that was on the surface rose up on high. And I heard a voice like the roaring of the sea, nor did it cease on account of the rich abundance of the fire. And as the fire raised itself up, ascending into the heights, I saw under the fire a throne of fire, and round about it the watchfulness of many eyes, even the all-seeing ones reciting their song, and under the throne four fiery Living Ones singing, and their appearance was one, and each one had four faces. And such was the appearance of their countenance, that each one had the face of a lion, a man, an ox and an eagle, and because of their four heads upon their bodies, they had sixteen faces, and each one had three pairs of wings, from their shoulders, from their sides, and from their loins. And with the wings from the shoulders they covered their faces, and with the wings from their loins they covered their feet, while the two middle wings were spread out for flying straight forward.
+
+21. And it came to pass that when they had ended their singing they looked at one another and threatened one another. (Another mention of this 'praise-rivalry', which may seem strange to us, as indeed the Cherubim are altogether very strange and wonderful beings, and which we must accept as part of the vision as it was seen.)
+
+22. And it came to pass that when the angel who was with me saw that they were threatening each other, he left me and went running to them and turned the countenance of each one away from the countenance immediately facing him, in order that they might not look upon each other. And he began to teach them the song of peace that has its origin in the Eternal One.
+
+23. And as I stood alone and looked, I saw behind the Living Ones a chariot with fiery wheels, each wheel full of eyes round about, and over the wheels was the throne which I had seen, and which was covered with fire, and the fire encircled it round about, and behold, an indescribable fire contained a mighty fiery host, and I heard its holy voice like the voice of a man.
+
+24. And a voice came to me out of the midst of the fire, saying, "Abraham! Abraham!" and I answered saying "Here am I!" And he said, "Consider the expanses which are under the firmament on which you are now placed and see how on no single expanse is there any other than the One whom you have sought, even the One who loves you!"
+
+25. And while he was yet speaking, the expanses opened, and there below me were the heavens, and I saw upon the seventh firmament upon which I stood a fire widely extended, and the light which is the treasury of life, and the dew with which God will awaken the dead, and the spirits of the departed righteous, and the spirits of those souls who have yet to be born, and judgment and righteousness, peace and blessing, and an innumerable company of angels, and the Living Ones, and the Power of the Invisible Glory that sat above the Living Ones.
+
+26. And I looked downwards from the mountain on which I stood to the sixth firmament, and there I saw a multitude of angels of pure spirit, without bodies, whose duty was to carry out the commands of the fiery angels who were upon the seventh firmament, as I was standing suspended over them. And behold, upon this sixth firmament there were no other powers of any form, save only the angels of pure spirit.
+
+27. And He commanded that the sixth firmament should be removed from my sight, and I saw there on the fifth firmament the powers of the stars that carry out the commands laid upon them, and the elements of the earth obeyed them.
+
+28. And the Eternal Mighty One said to me, "Abraham! Abraham!" And I said, "Here am I!" And He said to me, "Consider from above the stars which are beneath you, and number them for me, and make known to me their number." And I said, "How can I? For I am but a man of the dust of the earth." And He said to me, "As the number of the stars and their power, so will I make your seed a nation and a people set apart for me as my own inheritance, as distinct from that of Azazel. And yet I include Azazel in my house."
+
+29. And I said, "0 Eternal Mighty One! Let your servant speak before You, and let not your anger be kindled against your chosen one! For lo! before I came up hither, Azazel inveighed against me. How then, while he is not now before you, can you constitute yourself with him?"
+
+30. And He said to me, "Look now beneath your feet at the firmaments and understand the creation represented and foreshadowed in this expanse, the creatures who exist upon it, and the ages prepared for it."
+
+31. And I saw beneath the surface of my feet, even beneath the sixth heaven and what was therein, and then the earth and its fruits, and what moved upon it and its animate beings, and the power of its men, and the ungodliness of some of its souls and the righteous deeds of other souls, and I saw the lower regions and the perdition therein, the abyss and its torments. And I saw the sea and its islands, its monsters and its fishes, and Leviathan and his dominion, his camping-ground and his caves, and the world that lay above him, his movements and the destructions of the world on his account. And I saw there the streams and the rivers, and the rising of their waters, and their windings in their courses. And I saw there the Garden of Eden and its fruits, the source of the river that issues from it, the trees and their blossoms, and the ones who behaved righteously. And I saw therein their foods and their blessedness. And I saw there a great multitude, men and women and children, half of them on the right side of the vision, and half of them on the left side of the vision.
+
+32. And I said, "0 Eternal, Mighty One! What is this vision and picture of the creatures?" And He said to me, "This is my will for those who exist in the divine world-counsel, for thus it seemed well-pleasing in my sight, and so afterwards I gave commandment to them through my word. And so it came to pass that whatever I had determined to be, was already planned beforehand in this picture-vision before you, and it has stood before me before it was created, as you have seen." (Notice the clear explanation of the predestination of the righteous, and God's action towards them based upon what He knows of their actions. Here is the teaching of Paul in Romans 8, 'predestination and foreknowledge'.)
+
+33. And I said, "0 Lord, Mighty and Eternal! Who are the people in this picture on this side and that?" And He said to me, "Those who are on the left side are all those, born before your day and afterwards, some destined for judgment and restoration, and others for vengeance and cutting off at the end of the age. But those on the right side of the picture, they are the people who have been set apart for me, and whom I have ordained to be born of your line and called my people, even some of those who derive from Azazel.
+
+34. Now look again in the picture, and see who it is who seduced [[Eve]], and what is the fruit of the Tree, and you will know what is to be, and how it shall be with your seed among the people at the end of the days of the age, and all that you cannot understand I will make known to you for you are well-pleasing in my sight, and I will tell you of those things which are kept in my heart.
+
+35. And I looked into the picture, and my eyes ran to the side of the Garden of Eden, and I saw there a man of imposing height and mighty in stature, incomparable in aspect, and he was embracing a woman, who likewise approximated to the aspect of his size and stature. And they were standing under a tree of the Garden of Eden, and the fruit of this tree was like a bunch of grapes of the vine. And standing behind the tree was one who had the aspect of a Serpent having hands and feet like those of a man, and wings on its shoulders, six pairs of wings, so that there were six wings on the right and six on the left. And as I continued looking, I saw the man and the woman eating the fruit from the tree.
+
+36. And I said, "Who are these who are embracing, and who is the one between them who is behind the tree, and what is the fruit that they are eating?" And He said, "This is the council of the world, this one is [[Adam]], and this one, who is their desire upon the earth, is Eve. But he who is between them represents ungodliness and their beginnings on the way to perdition, even Azazel."
+
+37. And I said, "0 Eternal Mighty One! Why have you given such as him the power to destroy the generations of men in their works upon the earth?" And He said to me, "Those who will to do evil (and how much I hate it in those who do it) over them I gave him power, even to be beloved of them."
+
+38. And I answered and said, "0 Eternal Mighty One! Wherefore is it your will that evil should be desired in the hearts of men, since you are indeed enangered over that which you see? It is your will, and you are angry with him who is doing what is unprofitable in your counsel?"
+
+39. And He said to me, "I am angered by mankind on your account, and on account of those who shall be of your family hereafter, for as you can see in the picture, the burden of destiny is placed upon them, and I shall tell you what shall be, and how much shall be in the last days. Look now at everything in the picture." (The purport of these remarks is to show the interaction between those who are of the 'seed' and those who persecute the seed. And Paul understood the seed to mean those who, by faith, are of their father Abraham. God is therefore angry with those who maltreat His own faithful children.)
+
+40. And I looked and saw what was before me in creation; I saw Adam and Eve with him, and I saw the cunning adversary, and [[Cain]] who acted lawlessly through the promptings of the adversary, and I saw the slaughtered [[Abel]], and the destruction brought about and caused upon him through the lawless one. And I saw Impurity and those who lust after it, (Items here given capital letters indicate the names of unclean spirits, as was the custom in such writings) and its pollution and their jealousies, and the fire of their corruption in the lowest parts of the earth.
+
+41. And I saw Theft, and those who hasten after it, and the arrangement of their retribution, at the judgment of the Great Assize. And I saw there naked men with their foreheads against each other, and their disgrace, and the passions which they had for each other, and their retribution. And I saw Desire, and in her hand the head of every kind of lawlessness, and her scorn and contempt and waste assigned to perdition.
+
+42. And I saw there the likeness of the idol of jealousy, carved in woodwork such as my father was wont to make, and its body was of glittering bronze that covered the wood. And before it I saw a man who was worshipping the idol, and in front of him there was an altar, and upon the altar a boy slain in the presence of the idol.
+
+43. And I said to Him, "What is this idol and this altar, and who is he who is sacrificed? And what is this great building which I see, beautiful in art and design, even with a beauty like that which lies beneath Your throne?"
+
+44. And He said, "Hear Abraham, for that which you see is the Temple, a copy of that which is in the heavens, glorious in its aspect and beauty, even as I shall give it to the sons of men to ordain a priesthood for my glorious name, and in which the prayers of man shall be uttered, and sacrifices offered as I ordain to your people, even those who shall arise out of your generation. But the idol that you saw is the image of jealousy, (i.e. the idol which causes the jealousy of God, and His anger to arise because of it) set up by some of those who shall come forth from your own loins in later days. And the man who sacrifices in murder is he who pollutes my Temple and such are witnesses to the final judgment, and their lot has been set from the beginning of creation."
+
+45. And I said, 0 Eternal Mighty One! Why have you established that it should be so, and then proclaimed the knowledge thereof?" And He said to me, "Hear Abraham, and understand what I say to you, and answer my question. Why did your father Terah not listen to your voice, and why did he not cease from his idolatrous practices, together with his whole house?"
+
+46. And I said, "0 Eternal One! It was entirely because he did not choose to listen to my voice, and likewise I did not choose to listen to his counsel." And He said to me, "The will of your father is within him, and your own will is within you, and so also the counsel of my own will is within me, and is ready for the coming days, even before you have any knowledge of them or can see with your eyes what is the future of them. Now look again into the picture, and see how it will be with your seed."
+
+47. And I looked and saw, and behold the picture swayed and from it emerged, on the left side an ungodly people and they pillaged those who were on the right side, men, women, and children, and some they murdered, and others they kept as slaves. And I saw them run towards them through four 'entrances' (a word which does not mean actual gates, but contains the idea of four 'descents' or 'generations' as given to Abraham concerning the trials of his seed for the four generations till they came out of Egypt, but which in this context is seen to prefigure a much greater vision, that of which Daniel saw in later days, with four great world powers who would oppress the people of God.) and they burned the Temple with fire, and the holy things that were therein were all plundered.
+
+48. And I said, "0 Eternal One! Behold, the people who shall spring from me, and whom you have accepted, are plundered by these ungodly men, and some are killed, whilst others they hold captives as slaves, and the Temple they have burned with fire, and the beautiful things therein they have robbed and destroyed. If this to be, why have you so torn my heart?"
+
+49. And He said to me, "What you have seen shall happen on account of your seed, even those who anger me by reason of the idol statue which you saw, and on account of the human sacrifice in the picture, through their evil zeal and schemes in the Temple, and as you saw it, so shall it be."
+
+50. And I said, "0 Eternal, Mighty One! May these works of evil wrought in ungodliness now pass by, and rather show me those who fulfilled the commandments, even the works of righteousness. For of a truth you can do this."
+
+51. And He said to me, "The days of the righteous are seen in type by the lives of those righteous rulers who shall arise, and whom I have created to rule at the times appointed, but know this, that out of them shall arise others who care only for their own interests, even of the type that I have already shown you.
+
+52. And I answered and said, "0 Mighty One! Hallowed be your power! Be favourable to my petition and show me, because for this reason you have brought me up here, whether what I saw shall happen to them for a long time?"
+
+53. And He showed me a multitude of His people and said to me, "On their account, through four 'entrances' (i.e. descents, as in 47 above) as you saw, I shall be provoked by them, and in these (four descents) shall my retribution for their deeds be accomplished. But in the fourth descent of one hundred years, even one hour of the age, the same is a hundred years, there shall be misfortune among the nations, but also for one hour there shall be mercy and honour among those nations.
+
+54. And I said, "0 Eternal One! How long are the hours of the age?" And He said, "Twelve hours have I ordained for this present age of ungodliness to rule among the nations and within your seed, and until the end of the times it shall be even as you saw. And now reckon and understand and look again into the picture.
+
+55. And I looked and saw a Man going out from the left side of the nations (clearly the Messiah is here intended) and there went out men and women and children, from the side of nations, many hosts, and worshipped Him. And while I still looked, there came many from the right side, and some of these insulted Him, and some of them even struck Him, but others however worshipped Him. And as I watched, I saw Azazel approach Him and he kissed Him on the face and then stood behind Him.
+
+56. And I said, "0 Eternal One! Who is the Man insulted and beaten, who is worshipped by the nations and kissed by Azazel?" And He answered and said, "Hear Abraham! The Man you saw insulted and beaten and yet worshipped by many, He is the 'Relief' granted by the nations to the people who proceed from you, in the last days, in the twelfth hour of the age of ungodliness. But in the twelfth hour of my final age will I set up this Man from your generation, whom you saw issue from among my people, and all who follow will become like this Man, and such as are called by me will join the others, even those who will to change within themselves. (A neat definition of repentance!) And as for those who emerge from the left side of the picture, the meaning is this - there shall be many from the nations who shall set their hopes upon Him, but as for those whom you saw from your seed on the right of the picture who insulted Him and struck Him, many shall be offended in Him, but some shall worship Him. And He shall test those of your seed who have worshipped Him in the twelfth hour at the end, with a view to shortening the age of ungodliness.
+
+57. Before the age of the righteous begins to grow, my judgment shall come upon the lawless peoples through the-people of your seed who have been separated unto me. And in those days I will bring upon all creatures of the earth ten plagues, through misfortune and disease and the sighing of their grief. And this shall be brought upon the generations of men on account of the provocation and the corruption of mankind, whereby they provoke me. And then shall righteous men of your seed survive in the number which is kept secret by me, and will hasten the coming of the glory of My Name to that place prepared beforehand for them, which you saw devastated in the picture. (This presumably means Jerusalem, and like many other pictures, it has echelons of progressive meaning, starting, as always, with the physical, and ending with the spiritual. In this manner, the physical Jerusalem of the Bible days is replaced in the Book of Revelation by the great spiritual city that descends from God.) And they shall live and be established by sacrifices of righteousness (There is no need to imply blood sacrifice in this expression. It is used in the Psalms 4:5, 51:19, and like many other texts, may be spiritualised in the days in which we now live.) in the age of the righteous, and they shall rejoice in me continually, and receive those who return to me in repentance, for great shall be the inner torment of those who have despitefully used them in this world, as they observe the honour placed upon my own in the day of glory.
+
+58. See, Abraham, what you have seen and hear what you have heard, and take knowledge of all that you have come to know. Go to your heritage, and behold, I am with you unto the age."
+
+59. But while He was still speaking to me, I found myself once again upon the earth, and I said, "0 Eternal One! I am no longer in the glory that is on high, and there is one matter that my soul longed to know and understand which has not been revealed to me.
+
+60. And He said to me, "What your heart desired I will tell you, because you have sought to see the ten plagues which I have prepared for the godless nations, and which have been pre-determined at the passing over of the twelfth hour of the age of the earth. Hear therefore what I divulge, and so shall it come to pass. The first is the distressing pain of sickness; the second, conflagration of many cities; the third, the destruction and pestilence of animals; the fourth, hunger of the whole world and its people; the fifth, by destruction among its rulers, by earthquake and the sword; the sixth, the multiplication of hail and snow; the seventh, wild bests will be their grave; the eighth, hunger and pestilence will alternate with destruction; the ninth, punishment by the sword and flight in distress; the tenth, thunder and voices and destructive earthquake.
+
+61. And then I will sound the trumpet out of the air, and will send my Elect One, having in Him all my power in one measure, and He shall summon my despised people from all nations, and I will send fire upon those who have insulted them and who have ruled over them in this age. And I will give those who have covered me with mockery to the scorn of the coming age, and I have prepared them to be food for the fires of Hades, and perpetual flight through the air in the underworld, for they shall see the righteousness of the Creator, and those whom He now honours, and they shall he ashamed, for I had hoped that they would come to me in repentance, rather than loving strange gods, but they forsook the Mighty Lord, and went the way that they willed to go.
+
+62. Hear therefore, Abraham, and see, for behold, in the seventh generation from you shall they leave the land of their slavery, after they have been ill-treated as it were for an hour of the age of ungodliness, and the nation whom they shall serve I will judge." (These seven generations may thus be enumerated: Abraham, [[Isaac]], [[Jacob]], [[Levi]], [[Kohath]], [[Amram]], and [[Moses]].)

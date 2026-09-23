@@ -1,0 +1,1 @@
+Reputedly the bishop of Byzantium between 230 and 237 AD. Succeeded by [[Eugenius I]].

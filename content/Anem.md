@@ -1,0 +1,1 @@
+Area allotted to the tribe of [[Issachar]]. The name is believed to be derived from the Hebrew word "עֵינָם" (Eynam), which is thought to mean "two springs" or "double fountain," suggesting a place of water sources or wells.

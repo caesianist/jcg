@@ -1,0 +1,1 @@
+Chief to one of the Greek/Jewish figures associated with the court of [[Ptolemy Philadelphus]], the Egyptian king who is portrayed as commissioning the Greek translation of the Jewish Law (the Septuagint).

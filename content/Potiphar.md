@@ -1,0 +1,1 @@
+[[Joseph]]'s master during his time as a slave in [[Genesis 37]].

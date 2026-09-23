@@ -1,0 +1,1 @@
+Mentioned in [[Genesis 5]]. Son of [[Mahalalel]], father of [[Enoch]], the apocryphal [[Book of Jubilees]] says his mother is [[Dinah]] as well.

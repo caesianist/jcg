@@ -1,0 +1,1 @@
+Head of the Catholic Church from 30 December 1370 to his death, in March 1378. Succeeded by [[Urban VI]].

@@ -1,0 +1,1 @@
+The supposed tomb for the prophet [[Ezekiel]], located next to the site of the Nukhailah Mosque, in al-Kifl, in the district of al-Hillah, in the province of Babylon, Iraq.

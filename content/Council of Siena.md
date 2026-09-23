@@ -1,0 +1,1 @@
+In the Catholic Church, the Council of Siena (1423–1424) marked a somewhat inconclusive stage in the [[Conciliarism]] that was attempting reforms in the Church. If it had continued, it would have qualified as an ecumenical council. 

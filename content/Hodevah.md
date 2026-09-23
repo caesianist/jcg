@@ -1,0 +1,1 @@
+Listed among the [[Levites]] who returned to Jerusalem with [[Zerubbabel]]. 

@@ -1,0 +1,1 @@
+Mountain range in Israel, extending approximately 24 kilometers (15 miles) from the Mediterranean Sea southeastward. 

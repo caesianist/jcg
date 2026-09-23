@@ -1,0 +1,1 @@
+Mentioned in [[Genesis 4]]. First blacksmith, descendant of [[Cain]], son of [[Lamech]] and [[Zillah]], brother of [[Naamah]], and half-brother of [[Jabal]] and [[Jubal]].

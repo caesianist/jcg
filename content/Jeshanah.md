@@ -1,0 +1,1 @@
+Fortified city in the hill country of [[Ephraim]], which was part of the Northern Kingdom of Israel.

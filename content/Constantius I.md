@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople during the period 1830–1834. Succeeded by [[Constantius II (Constantinople)]].

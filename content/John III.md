@@ -1,0 +1,1 @@
+Bishop of Rome from 17 July 561 to his death on 13 July 574. Succeeded by [[Benedict I]].

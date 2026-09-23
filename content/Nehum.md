@@ -1,0 +1,1 @@
+One of the leaders who accompanied [[Zerubbabel]] in the return to Jerusalem.

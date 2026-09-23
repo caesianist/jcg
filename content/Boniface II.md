@@ -1,0 +1,1 @@
+First Germanic Bishop of Rome. He was the Bishop of Rome from 22 September 530 until his death on 17 October 532. Succeeded by [[John II]].

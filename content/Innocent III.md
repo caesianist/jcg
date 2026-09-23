@@ -1,0 +1,1 @@
+Head of the Catholic Church and sovereign of the Papal States from 8 January 1198 until his death in 1216. He organized the [[Fourth Crusade]]. Succeeded by [[Honorius III]].

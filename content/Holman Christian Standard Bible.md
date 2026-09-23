@@ -1,0 +1,1 @@
+Work on the HCSB was begun by [[Arthur Farstad]], a general editor of the [[New King James Version]]. Published by Lifeway, the New Testament was published in 1999, with the full Bible published in 2004. 

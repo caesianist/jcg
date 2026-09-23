@@ -1,0 +1,1 @@
+Name given to [[Joseph]] by the Pharoah in [[Genesis 41]].

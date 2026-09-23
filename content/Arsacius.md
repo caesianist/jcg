@@ -1,0 +1,1 @@
+Archbishop of Constantinople from 404 to 405. Succeeded by [[Atticus]].

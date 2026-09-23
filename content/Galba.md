@@ -1,0 +1,1 @@
+Roman emperor, ruling for 7 months from 8 June AD 68 to 15 January 69. Succeeded by [[Otho]].

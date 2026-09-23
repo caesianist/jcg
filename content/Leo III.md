@@ -1,0 +1,1 @@
+Bishop of Rome and leader of the Papal States from 26 December 795 to his death on 12 June 816. Succeeded by [[Stephen IV]].

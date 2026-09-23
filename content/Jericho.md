@@ -1,0 +1,1 @@
+In [[Joshua 6]], the walls of this fortified city in the West Bank of Palestine fell after the [[Israelites]] marched around the city walls once a day for six days, seven times on the seventh day, with the priests blowing their horns daily and the people shouting on the last day. 

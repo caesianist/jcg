@@ -1,0 +1,1 @@
+The thirteenth and last Achaemenid king, reigning from 336 BC to his death in 330 BC.

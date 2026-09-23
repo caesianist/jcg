@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1320 to 1321. Succeeded by [[Isaias]].

@@ -1,0 +1,1 @@
+An ancient city located in the the lowland region of [[Judah]], southwest of Jerusalem. 

@@ -1,0 +1,1 @@
+Son of [[Saul]] who after his death reigned his kingdom for two years, succeeded by [[David]].

@@ -1,0 +1,1 @@
+Bishop of Rome from 13 March 483 to his death on 1 March 492. Succeeded by [[Gelasius I]].

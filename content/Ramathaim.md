@@ -1,0 +1,1 @@
+Home of [[Elkanah]], the birthplace of [[Samuel]]. This area has been identified with one of two sites. One of them is the modern Palestinian village of Nabi Samwil, the other the former village, now town, of er-Ram.

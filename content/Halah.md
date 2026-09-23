@@ -1,0 +1,1 @@
+One of the locations to which the Assyrian Empire exiled the [[Israelites]] after the fall of the Northern Kingdom of Israel, this event was after the rule of king [[Hoshea]].

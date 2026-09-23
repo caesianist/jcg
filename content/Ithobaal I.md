@@ -1,0 +1,1 @@
+9th-century BCE king of [[Tyre]], father of [[Jezebel]].

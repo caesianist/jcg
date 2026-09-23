@@ -1,0 +1,1 @@
+Son of [[Hazael]], thought to have ruled [[Aram-Damascus]] from 796 BC to 792 BC, was succeeded by [[Rezin]].

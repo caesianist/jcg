@@ -1,0 +1,1 @@
+A priestly town in ancient Israel whose remains are in Jerusalem, the town's [[Aaronites]] are massacred by [[Doeg]] the Edomite, 

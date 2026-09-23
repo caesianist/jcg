@@ -1,0 +1,1 @@
+Listed among the towns where the people of [[Benjamin]] resettled after the Babylonian exile.

@@ -1,0 +1,1 @@
+3rd/4th century apocryphal book which expands upon the [[]] narrative of the Hebrew Bible, in a similar manner to [[1 Enoch]].

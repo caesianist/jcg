@@ -1,0 +1,1 @@
+Located on the Mediterranean coast of what is now modern-day Israel. It is situated approximately 15 miles south of Mount [[Carmel]].

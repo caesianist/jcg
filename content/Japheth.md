@@ -1,0 +1,1 @@
+Son of [[Noah]], siblings of [[Shem]] and [[Ham]]. Father of [[Gomer]], [[Magog]], [[Tiras]], [[Javan]], [[Meshech]], [[Tubal]], and [[Madai]].

@@ -1,0 +1,1 @@
+Roman emperor from AD 79 to 81. Succeeded by [[Domitian]].

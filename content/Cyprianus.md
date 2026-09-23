@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople twice, in 1707–1709 and 1713–1714. Succeeded by [[Athanasius V]] and [[Cosmas III]].

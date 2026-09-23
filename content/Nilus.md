@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople between March/April 1380 and 1 February 1388. Succeeded by [[Macarius]].

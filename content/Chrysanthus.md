@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople during the period 1824–1826. Succeeded by [[Agathangelus]].

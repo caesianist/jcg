@@ -1,0 +1,1 @@
+Situated in the southern part of the territory allotted to the tribe of [[Judah]]. 

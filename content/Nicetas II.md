@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from February 1186 to February 1189. Succeeded by [[Dositheus]].

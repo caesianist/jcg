@@ -1,0 +1,1 @@
+Derived from the Hebrew word "חֶרֶס" (ḥeres), which can mean "sun" or "sunlight." 

@@ -1,0 +1,1 @@
+Also known possibly as [[Hadadezer]], son of [[Rehob]], king of [[Aram-Damascus]] between 865 and 842 BCE, succeeded by [[Hazael]].

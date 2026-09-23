@@ -1,0 +1,1 @@
+Temple servant whose descendants were exiled Jews who returned.

@@ -1,0 +1,1 @@
+Inhabitants of [[Gerasa]], [[Gadara]], or [[Gergesa]].

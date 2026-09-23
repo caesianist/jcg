@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople twice. (1377–1379, 1390). Succeeded by [[Nilus]] the first time and [[Antony IV]] the second time.

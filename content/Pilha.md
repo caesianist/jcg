@@ -1,0 +1,1 @@
+One of the leaders who sealed the covenant with God after the Babylonian exile.

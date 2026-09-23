@@ -1,0 +1,1 @@
+Descendant of [[Kohath]], believed to mean "grasping" or "seizing."

@@ -1,0 +1,1 @@
+Roman emperor for the first three months of 193. Succeeded by [[Didius Julianus]].

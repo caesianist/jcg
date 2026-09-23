@@ -1,0 +1,1 @@
+Likely another name for [[Golgotha]].

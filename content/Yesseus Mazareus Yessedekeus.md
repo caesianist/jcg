@@ -1,0 +1,1 @@
+Celestial being in Sethian Gnostic literature associated with water.

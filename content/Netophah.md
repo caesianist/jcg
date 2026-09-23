@@ -1,0 +1,1 @@
+City or group of villages near the town of Bethlehem.

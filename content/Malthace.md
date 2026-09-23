@@ -1,0 +1,1 @@
+Woman who lived in the latter half of the 1st century BC. She was one of the wives of [[Herod the Great]] and the mother by Herod of [[Herod Antipas]] and [[Herod Archelaus]].

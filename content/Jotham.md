@@ -1,0 +1,1 @@
+Eleventh king of [[Judah]], and son of [[Uzziah]] and [[Jerusha]], reigned for 16 years.

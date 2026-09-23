@@ -1,0 +1,1 @@
+Believed to have been located in the northern part of ancient [[Canaan]], within the territory that would later be allotted to the tribe of [[Zebulun]]. 

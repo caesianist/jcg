@@ -1,0 +1,1 @@
+A group of heavenly angelic beings, corresponding to the [[Cherubim]] of Jewish tradition; associated with the higher divine/celestial realm in [[On the Origin of the World]].

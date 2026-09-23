@@ -1,0 +1,1 @@
+Member of the [[Asherites]], son of [[Heber]], father of [[Pasach]], [[Bimhal]], and [[Ashvath]].

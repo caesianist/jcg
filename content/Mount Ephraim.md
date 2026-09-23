@@ -1,0 +1,1 @@
+Central mountainous district of Israel once allotted to the [[Ephraimites]] which extends from [[Bethel]] to the plain of [[Jezreel]]. Approximately sometime between the 18th century BCE and the 13th century BCE, these hills were densely wooded. They were intersected by well-watered, fertile valleys.

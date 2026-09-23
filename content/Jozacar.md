@@ -1,0 +1,1 @@
+Son of [[Shimeath]], servant of [[Joash]].

@@ -1,0 +1,1 @@
+Also known as Ascalon. Ancient Near East port city on the Mediterranean coast of the southern Levant.

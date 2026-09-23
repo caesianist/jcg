@@ -1,0 +1,1 @@
+Son of [[Rehoboam]] and was second king of [[Judah]].

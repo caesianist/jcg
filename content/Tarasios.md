@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 25 December 784 until his death on 25 February 806. Succeeded by [[Nikephoros I]].

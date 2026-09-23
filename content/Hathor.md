@@ -1,0 +1,1 @@
+A major goddess in ancient Egyptian religion who played a wide variety of roles. As a sky deity, she was the mother or consort of the sky god [[Horus]] and the sun god [[Ra]], both of whom were connected with kingship, and thus she was the symbolic mother of their earthly representatives, the pharaohs. 

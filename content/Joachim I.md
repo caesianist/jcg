@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1498 to 1502 and for a short time in 1504. Succeeded by [[Nephon II]] the first time, and [[Pachomius I]] the second time.

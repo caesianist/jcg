@@ -1,0 +1,1 @@
+Eastern Orthodox synod held in 1672, convoked and presided over by [[Dositheus II]], the council was to counter the Calvinist confessions alleged to be from [[Cyril I]].

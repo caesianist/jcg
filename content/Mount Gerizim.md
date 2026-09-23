@@ -1,0 +1,1 @@
+Mountain near the Palestinian city of Nablus, which is in the Bible [[Shechem]].

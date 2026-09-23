@@ -1,0 +1,1 @@
+Roman emperor from 218 to 222. Succeeded by [[Severus Alexander]].

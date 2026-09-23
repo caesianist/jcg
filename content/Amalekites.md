@@ -1,0 +1,1 @@
+Inhabitants and those associated with [[Amalek]].

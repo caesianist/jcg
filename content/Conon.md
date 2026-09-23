@@ -1,0 +1,1 @@
+Bishop of Rome from 21 October 686 to his death on 21 September 687. Succeeded by [[Sergius I]].

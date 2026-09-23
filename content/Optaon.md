@@ -1,0 +1,1 @@
+A mystical name of the supreme divine being.

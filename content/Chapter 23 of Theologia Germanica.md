@@ -1,0 +1,12 @@
+CHAPTER XXIII
+He who will submit himself to God and be obedient to Him, must be ready to bear with all Things; to wit, God, himself, and all Creatures, and must be obedient to them all whether he have to suffer or to do.
+
+ 
+
+There be some who talk of other ways and preparations to this end, and say we must lie still under God’s hand, and be obedient and resigned and submit to Him. This is true; for all this would be perfected in a man who should attain to the uttermost that can be reached in this present time. But if a man ought and is willing to lie still under God’s hand, he must and ought also to be still under all things, whether they come from God himself, or the creatures, nothing excepted. And he who would be obedient, resigned and submissive to God, must and ought to be also resigned, obedient and submissive to all things, in a spirit of yielding, and not of resistance, and take them in silence, resting on the hidden foundations of his soul, and having a secret inward patience, that enableth him to take all chances or crosses willingly, and whatever befalleth, neither to call for nor desire any redress, or deliverance, or resistance, or revenge, but always in a loving, sincere humility to cry, “Father, forgive them, for they know not what they do!”
+
+Behold! this were a good path to that which is Best, and a noble and blessed preparation for the farthest goal which a man may reach in this present time. This is the lovely life of Christ, for He walked in the aforesaid paths perfectly and wholly unto the end of His bodily life on earth. Therefore there is no other and better way or preparation to the joyful life of [[Jesus]] Christ, than this same course, and to exercise oneself therein, as much as may be. And of what belongeth thereunto we have already said somewhat; nay, all that we have here or elsewhere said and written, is but a way or means to that end. But what the end is, knoweth no man to declare. But let him who would know it, follow my counsel and take the right path thereunto, which is the humble life of Jesus Christ; let him strive after that with unwearied perseverance, and so, without doubt, he shall come to that end which endureth for ever. “For he that endureth to the end shall be saved.”30
+
+ 
+
+30    Matt. 10:22.

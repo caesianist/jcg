@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1059 until his death in 1063. Succeeded by [[John VIII (Constantinople)]].

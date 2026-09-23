@@ -1,0 +1,1 @@
+Man (or a youth) of [[Troas]] tended to by St. [[Paul]]. Eutychus fell asleep due to the long nature of the discourse Paul was giving, fell from a window out of the three-story building, and died.

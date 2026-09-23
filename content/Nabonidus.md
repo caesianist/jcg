@@ -1,0 +1,1 @@
+The last king of the Neo-Babylonian Empire, ruling from 556 BC to the fall of Babylon to the Achaemenian Empire under [[Cyrus the Great]] in 539 BC.

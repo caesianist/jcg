@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople for two periods from August 1353 to December 1354 and from 8 October 1364 to August 1376. Succeeded by [[Callistus I]] the first time, and [[Macarius]] the second time.

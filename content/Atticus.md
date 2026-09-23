@@ -1,0 +1,1 @@
+Archbishop of Constantinople, succeeding to the episcopal throne in March 406. He is known for having been an opponent of [[John Chrysostom]] whom he helped depose, he would die around 425 and be succeeded by [[Sisinnius I]].

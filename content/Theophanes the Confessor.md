@@ -1,0 +1,1 @@
+Born around 759, died 817 or 818. Member of the Byzantine aristocracy who became a monk and chronicler. He served in the court of Emperor [[Leo IV the Khazar]] before taking up the religious life. Theophanes attended the [[Second Council of Nicaea]] in 787 and resisted the iconoclasm of Leo V the Armenian, for which he was imprisoned. He died shortly after his release.

@@ -1,0 +1,1 @@
+Bishop of Rome from 6 October 891 until his death on 4 April 896. Succeeded by [[Boniface VI]].

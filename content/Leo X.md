@@ -1,0 +1,1 @@
+Head of the Catholic Church and leader of the Papal States from 9 March 1513 to his death in December 1521. Oversaw the closing sessions of the [[Fifth Council of the Lateran]]. Succeeded by [[Adrian VI]].

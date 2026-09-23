@@ -1,0 +1,1 @@
+King of Assyria from 668 to 627 BC.

@@ -1,0 +1,1 @@
+Region of wilderness and a mountain in the peninsula east of the Red Sea, on Mount Sinai within this location, [[Moses]] received the 10 commandments from God.

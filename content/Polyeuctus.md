@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople (956–970). Succeeded by [[Basil I]].

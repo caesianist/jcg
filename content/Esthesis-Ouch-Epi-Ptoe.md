@@ -1,0 +1,1 @@
+Mother of the four principal demons ([[Blaomen]], [[Nenentophni]], [[Yoko]], and [[Ephememphi]]) in the [[Apocryphon of John]]. Also known as [[Esthesis-Z-Ouch-Epi-Ptoe]].

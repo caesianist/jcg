@@ -1,0 +1,1 @@
+A location associated with the birth of [[Judah]]'s son, [[Shelah]], in the [[Elah]] valley in Israel.

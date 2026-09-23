@@ -1,0 +1,1 @@
+One of [[David]]'s warriors, member of the [[Hushathites]].

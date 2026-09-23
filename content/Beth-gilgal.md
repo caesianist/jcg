@@ -1,0 +1,1 @@
+The name "Beth-gilgal" translates to "house of [[Gilgal]]," indicating its connection to Gilgal.

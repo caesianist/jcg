@@ -1,0 +1,1 @@
+Father of [[Segub]] and [[Abiram]]. A Beth-elite who rebuilt [[Jericho]] after 700 years of Israel destroying it.

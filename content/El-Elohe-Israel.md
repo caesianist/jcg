@@ -1,0 +1,1 @@
+An altar erected in [[Genesis 33]] named by [[Jacob]].

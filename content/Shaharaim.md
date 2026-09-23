@@ -1,0 +1,1 @@
+A member of the [[Benjamites]]. He had three wives, [[Hushim]], [[Baara]], and [[Hodesh]], and was the father of [[Jobab]], [[Zibia]], [[Mesha]], [[Malcam]], [[Jeuz]], [[Sachiah]], [[Mirmah]], [[Abitub]], and [[Elpaal]].

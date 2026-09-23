@@ -1,0 +1,1 @@
+The ruling dynasty of Israel founded by [[Omri]] who was the sixth king of Israel. The dynasty ended with the murder of [[Jehoram]] of Israel.

@@ -1,0 +1,1 @@
+Son of [[Shaalbon]], one of [[David]]'s warriors.

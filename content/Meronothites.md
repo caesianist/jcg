@@ -1,0 +1,1 @@
+Name given to a biblical person from [[Meronoth]]. There are only two mentions of them in the bible: [[Jehdeiah]] and [[Jadon]], close to [[Gibeon]] and [[Mizpah]], Mizpah is a doubtful reading.

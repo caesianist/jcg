@@ -1,0 +1,1 @@
+Divine/angelic being in Sethian Gnosticism.

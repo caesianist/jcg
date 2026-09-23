@@ -1,0 +1,1 @@
+The Church of England authorized the production of a new English Bible in 1568 which became this translation. The 1602 edition of this book was used as the starting point for the [[King James Version]]. 

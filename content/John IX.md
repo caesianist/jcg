@@ -1,0 +1,1 @@
+Bishop of Rome from January 898 to his death in 900. Succeeded by [[Benedict IV]].

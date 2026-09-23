@@ -1,0 +1,1 @@
+Second power in [[Apocryphon of John]], has the face of a donkey.

@@ -1,0 +1,1 @@
+Place on the eastern (Golan Heights) side of the Sea of Galilee.

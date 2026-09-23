@@ -1,0 +1,1 @@
+Daughter of a pharoah who married [[Mered]].

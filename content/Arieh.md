@@ -1,0 +1,1 @@
+Name means "lion" in Hebrew, one of the people killed during a coup against [[Pekah]].

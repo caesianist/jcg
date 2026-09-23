@@ -1,0 +1,1 @@
+Head of the Catholic Church from 16 June 1846 until his death in February 1878. Convoked the [[First Vatican Council]] which defined papal infallibility. Succeeded by [[Leo XIII]].

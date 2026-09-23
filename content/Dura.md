@@ -1,0 +1,1 @@
+Situated near the ancient city of Babylon, in present-day Iraq. The name "Dura" is thought to derive from a Semitic root meaning "wall" or "enclosure," suggesting that it may have been a walled area or a fortified plain. 

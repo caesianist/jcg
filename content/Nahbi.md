@@ -1,0 +1,1 @@
+Member of the [[Naphtalites]], son of [[Vophsi]].

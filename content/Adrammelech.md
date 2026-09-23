@@ -1,0 +1,1 @@
+One of the deities of [[Sepharvaim]] who is also son of [[Nisroch]] in their mythology.

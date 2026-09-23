@@ -1,0 +1,1 @@
+Historian of Christianity, exegete, and Christian polemicist from the Roman province of Syria Palaestina. In about AD 314 he became the bishop of Caesarea Palaestina. Together with [[Pamphilus]], Eusebius was a scholar of the biblical canon and is regarded as one of the most learned Christians during late antiquity.

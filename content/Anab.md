@@ -1,0 +1,1 @@
+City located in the hill country of [[Judah]]. It is one of the places where the [[Anakim]], a race of giants, resided. 

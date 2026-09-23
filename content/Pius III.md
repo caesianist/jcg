@@ -1,0 +1,1 @@
+Head of the Catholic Church and leader of the Papal States from 22 September 1503 to his death 26 days later. Succeeded by [[Julius II]].

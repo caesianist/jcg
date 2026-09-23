@@ -1,0 +1,1 @@
+Camping place of the [[Israelites]] that was near [[Arad]] and [[Atharim]].

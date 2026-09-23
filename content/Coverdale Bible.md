@@ -1,0 +1,1 @@
+The first complete modern English translation and the first complete printed English translation, the Coverdale Bible was produced by [[Myles Coverdale]]. His New Testament was primarily based on [[William Tyndale]]'s translation. For the Old Testament, not being a Hebrew or Greek scholar, he worked primarily from German Bibles and some Latin sources, including the [[Vulgate]].

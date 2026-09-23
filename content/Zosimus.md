@@ -1,0 +1,1 @@
+Bishop of Rome from 18 March 417 to his death on 26 December 418. Succeeded by [[Boniface I]].

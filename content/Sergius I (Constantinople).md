@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 610 to 638. Succeeded by [[Pyrrhus I]].

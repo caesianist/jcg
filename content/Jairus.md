@@ -1,0 +1,1 @@
+Father of a daughter healed by [[Jesus]].

@@ -1,0 +1,1 @@
+The royal consort of King [[Ahaziah]] of [[Judah]], and the mother of King [[Jehoash]]/[[Joash]] of Judah.

@@ -1,0 +1,1 @@
+Bishop of Rome and nominal ruler of the Papal States from 10 May 946 to 8 November 955. Succeeded by [[John XII]].

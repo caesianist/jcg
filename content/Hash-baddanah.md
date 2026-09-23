@@ -1,0 +1,1 @@
+Listed among the [[Levites]] who stood on the stairs and cried out to the LORD with a loud voice during a public confession of sins and a renewal of the covenant. 

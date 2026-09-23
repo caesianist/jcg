@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from May 1134 until his death on 12 January 1143. Succeeded by [[Michael II]].

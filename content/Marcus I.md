@@ -1,0 +1,1 @@
+Bishop of Byzantium for 13 years (198 – 211). Succeeded by [[Philadelphus]].

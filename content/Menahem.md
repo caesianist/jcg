@@ -1,0 +1,1 @@
+Sixteenth king of the northern Kingdom of Israel. He was the son of [[Gadi]] and was succeeded by his son [[Pekahiah]].

@@ -1,0 +1,1 @@
+Son of [[Lehi]] living around 600 BC.

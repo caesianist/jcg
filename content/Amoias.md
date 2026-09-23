@@ -1,0 +1,1 @@
+Also known as [[Amoiaias]]. A heavenly/light entity or manifestation.

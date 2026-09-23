@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople for a few months in 1757 and a writer and scholar. Succeeded by [[Seraphim II]].

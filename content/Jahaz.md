@@ -1,0 +1,1 @@
+The site of the battle between King [[Sihon]] and the [[Israelites]] led by [[Moses]], later became a territory of the [[Reubenites]].

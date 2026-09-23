@@ -1,0 +1,1 @@
+Patriarch of Constantinople from 13 March 536 until his death on 25 August 552. Succeeded by [[Eutychius]].

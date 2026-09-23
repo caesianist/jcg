@@ -1,0 +1,1 @@
+English biblical scholar and minister of the Churches of Christ. He was a prolific writer whose best-known work was the [[Emphasized Bible]], a new translation that used "emphatic inversion" and a set of diacritical marks to bring out shades of meaning in the original text.

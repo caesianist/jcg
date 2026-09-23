@@ -1,0 +1,1 @@
+Daughter of [[Sophia]] in [[Hypostasis of the Archons]]. She opposes [[Yaldabaoth]], the ignorant chief Archon who created the material world. When Yaldabaoth attempts to claim Eve, Zoe intervenes and breathes life into [[Eve]], giving her the divine power that the Archons lack.

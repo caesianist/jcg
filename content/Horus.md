@@ -1,0 +1,1 @@
+One of the most significant ancient Egyptian deities who served many functions, most notably as the god of kingship, healing, protection, the sun, and the sky. He was worshipped from at least the late prehistoric Egypt until the Ptolemaic Kingdom and Roman Egypt. 

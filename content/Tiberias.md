@@ -1,0 +1,1 @@
+City on the western shore of the Sea of Galilee in northern Israel.

@@ -1,0 +1,1 @@
+Sought out [[Paul]] who was imprisoned at the time in Rome.

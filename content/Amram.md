@@ -1,0 +1,1 @@
+Husband of [[Jochebed]] and father of [[Aaron]], [[Moses]] and [[Miriam]], son of [[Kohath]].

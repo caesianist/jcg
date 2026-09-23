@@ -1,0 +1,1 @@
+Narrator of the first two books of the [[Book of Mormon]], was a son of [[Lehi]].

@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople between 24 May 1111 and late April 1134. Succeeded by [[Leo Styppes]].

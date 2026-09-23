@@ -1,0 +1,1 @@
+King of [[Bashan]] of the [[Amorites]] who was slain by the army of the [[Israelites]] led by [[Moses]].

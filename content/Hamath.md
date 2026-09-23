@@ -1,0 +1,1 @@
+Situated on the Orontes River, approximately 120 miles north of Damascus. 

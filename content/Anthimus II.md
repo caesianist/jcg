@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople for a few months in 1623. Succeeded by [[Cyril I]].

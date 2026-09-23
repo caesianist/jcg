@@ -1,0 +1,1 @@
+Titular bishopric in the location of the present-day city of Acre, Israel.

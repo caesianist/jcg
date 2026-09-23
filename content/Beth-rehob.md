@@ -1,0 +1,1 @@
+Believed to have been located in the northern part of ancient Israel, possibly in the vicinity of the Beqaa Valley or near the modern town of Hasbaya in Lebanon.

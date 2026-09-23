@@ -1,0 +1,1 @@
+Birthname of [[Abraham]] before God renames him.

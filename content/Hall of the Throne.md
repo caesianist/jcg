@@ -1,0 +1,1 @@
+One of [[Solomon]]'s construction projects, where he was to pronounce judgment.

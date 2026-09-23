@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1294 to 1303. Succeeded by [[Athanasius I]].

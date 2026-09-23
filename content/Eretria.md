@@ -1,0 +1,1 @@
+Town in Euboea, Greece, facing the coast of Attica across the narrow South Euboean Gulf. 

@@ -1,0 +1,1 @@
+Second authority in the [[Apocryphon of John]], known as "jealous eye", perhaps influenced by the deity Hermes. Also known as [[Armas]].

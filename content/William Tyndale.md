@@ -1,0 +1,1 @@
+English Biblical scholar and linguist who became a leading figure in the Protestant Reformation in the years leading up to his execution. He translated much of the Bible into English with the  [[Tyndale Bible]] and was influenced by the works of prominent Protestant Reformers such as [[Martin Luther]]. 

@@ -1,0 +1,1 @@
+In some translations of the Bible it is treated as a location which he is said to have captured from the [[Philistines]].  An alternate understanding is that this is not a proper name but a Hebrew phrase meaning "bridge of the mother-city", which would refer to the Philistine capital at [[Gath]].

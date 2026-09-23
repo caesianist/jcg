@@ -1,0 +1,1 @@
+Near [[Rimmon]] and served as a refuge for [[Benjaminites]].

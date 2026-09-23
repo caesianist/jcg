@@ -1,0 +1,1 @@
+Name of a woman who is one of those present when [[Paul]] of [[Tarsus]] preached in Athens in front of the Athenian [[Areopagus]] in c. AD 55.

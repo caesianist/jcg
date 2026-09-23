@@ -1,0 +1,1 @@
+King of the [[Ammonites]]. He instigated the murder of [[Gedaliah]], the Babylonian-appointed Jewish governor of Jerusalem. King before him was likely [[Amminadab II]].

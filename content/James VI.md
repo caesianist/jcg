@@ -1,0 +1,1 @@
+King of England and Ireland as from the union of the Scottish and English crowns on 24 March 1603, until his death in 1625. He sponsored an early translation of the Bible into English later named for him as the [[King James Version]].

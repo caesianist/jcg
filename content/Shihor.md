@@ -1,0 +1,1 @@
+East of Egypt, northward to the boundary of [[Ekron]].

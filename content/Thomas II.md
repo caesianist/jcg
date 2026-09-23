@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 17 April 667 to 669. Succeeded by [[John V (Constantinople)]].

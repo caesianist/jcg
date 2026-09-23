@@ -1,0 +1,1 @@
+Bishop of Rome from 1 February 900 to his death in July 903. Succeeded by [[Leo V]].

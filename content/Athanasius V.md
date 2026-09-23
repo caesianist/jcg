@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople during the period of 1709–1711. Succeeded by [[Cyril IV]]. [[Cosmas III]]

@@ -1,0 +1,1 @@
+City in northern [[Canaan]] on the eastern boundary of the tribe of [[Asher]]. 

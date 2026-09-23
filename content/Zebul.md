@@ -1,0 +1,1 @@
+One of [[Abimelech]]'s officers, and the governor (or commandant) of the city of [[Shechem]]. Zebul played an important role in the rebellion and defeat of Gaal, secretly sending messengers to Abimelech and warning him of the situation.

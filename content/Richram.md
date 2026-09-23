@@ -1,0 +1,1 @@
+Empowered over the physical substances of the humans in [[Apocryphon of John]].

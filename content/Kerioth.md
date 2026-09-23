@@ -1,0 +1,1 @@
+The name "Kerioth" is derived from the Hebrew word "qiryah," meaning "cities" or "towns," located in [[Moab]].

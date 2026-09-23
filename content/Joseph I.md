@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople, from 1266 to 1275 and from 1282 until shortly before his death on 23 March 1283. Succeeded by [[John XI (Constantinople)]] the first time and [[Gregory II (Constantinople)]] the second time.

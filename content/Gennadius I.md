@@ -1,0 +1,1 @@
+Patriarch of Constantinople from August 458 until his death on 17 November 471. Succeeded by [[Acacius]].

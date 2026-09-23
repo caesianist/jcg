@@ -1,0 +1,1 @@
+A god of sacrifice among [[Canaan]]. There is also speculation the term refers to the sacrifice itself, since the Hebrew word mlk is identical in spelling to a term that means "sacrifice" in the closely related Punic language.

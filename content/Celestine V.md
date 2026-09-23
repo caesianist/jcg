@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States for five months from 5 July to 13 December 1294, when he abdicated. Succeeded by [[Boniface VIII]].

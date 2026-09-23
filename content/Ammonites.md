@@ -1,0 +1,1 @@
+Inhabitants of the ancient Semitic-speaking kingdom [[Ammon]], occupying the east of the Jordan River, between the torrent valleys of [[Arnon]] and [[Jabbok]], in present-day Jordan.

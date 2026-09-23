@@ -1,0 +1,1 @@
+Handmaid for [[Rotheus]] that was given to him by [[Laban]].

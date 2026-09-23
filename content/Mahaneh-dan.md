@@ -1,0 +1,1 @@
+Translates to "Camp of [[Dan]]" in Hebrew. Is located west of [[Kiriath-jearim]] and between [[Zorah]] and [[Eshtaol]].

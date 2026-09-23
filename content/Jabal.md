@@ -1,0 +1,1 @@
+Also called Yabal. Mentioned in [[Genesis 4]]. Son of [[Lamech]] and [[Adah]], brother of [[Jubal]], and half-brother of [[Tubal-cain]] and [[Naamah]]

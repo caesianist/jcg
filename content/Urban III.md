@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 25 November 1185 until his death in 1187. Succeeded by [[Gregory VIII]].

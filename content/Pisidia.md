@@ -1,0 +1,1 @@
+North of [[Pamphylia]], northeast of Lycia, west of Isauria and [[Cilicia]], and south of [[Phrygia]].

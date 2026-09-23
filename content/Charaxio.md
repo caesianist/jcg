@@ -1,0 +1,1 @@
+The name of the Mountain where [[Seth]] placed his writings, a place where the sun does not rise. Place where [[Michar]], [[Mnesinous]], and [[Micheus]], preside over the Spring of Life, for baptism.

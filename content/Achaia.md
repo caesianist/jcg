@@ -1,0 +1,1 @@
+A province of the Roman Empire, consisting of the Peloponnese, Attica, Boeotia, Euboea, the Cyclades and parts of Phthiotis, Aetolia and Phocis. 

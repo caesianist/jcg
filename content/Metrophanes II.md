@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1440–1443. Succeeded by [[Gregory III (Constantinople)]].

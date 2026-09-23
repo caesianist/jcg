@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1 March 901 to 1 February 907 and from 15 May 912 to his death on 15 May 925. Succeeded by [[Euthymius I]] the first time and [[Stephen II (Constantinople)]] the second time.

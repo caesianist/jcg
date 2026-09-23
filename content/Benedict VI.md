@@ -1,0 +1,1 @@
+Bishop of Rome and nominal ruler of the Papal States from 19 January 973 to 8 June 974. Succeeded by [[Benedict VII]].

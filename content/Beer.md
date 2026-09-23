@@ -1,0 +1,1 @@
+A station of the [[Israelites]] that later was allotted to the tribe of [[Judah]].

@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 25 November 1277 to his death on 22 August 1280. Succeeded by [[Martin IV]].

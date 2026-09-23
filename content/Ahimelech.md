@@ -1,0 +1,1 @@
+An Israelite priest and served as the grand priest of the town of [[Nob]]. Son of [[Ahitub]] and father of [[Abiathar]].

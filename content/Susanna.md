@@ -1,0 +1,1 @@
+Woman healed by [[Jesus]] and disciple to him.

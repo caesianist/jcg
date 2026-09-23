@@ -1,0 +1,1 @@
+Unidentified self-proclaimed author of the [[Eugnostos the Blessed]] and mentioned in [[Gospel of the Egyptians]].

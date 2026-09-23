@@ -1,0 +1,1 @@
+Ancient name for [[Kadesh]].

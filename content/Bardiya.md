@@ -1,0 +1,1 @@
+A son of [[Cyrus the Great]] and the younger brother of [[Cambyses II]], ruled the Achaemenid Empire for a couple months in 522 BC before being succeeded by [[Darius the Great]].

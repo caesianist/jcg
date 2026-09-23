@@ -1,0 +1,1 @@
+Father of [[Melea]], son of [[Mattatha]].

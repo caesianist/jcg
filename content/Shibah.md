@@ -1,0 +1,1 @@
+A well dug by [[Isaac]] in the locality which developed later as [[Beer-sheba]] in Israel.

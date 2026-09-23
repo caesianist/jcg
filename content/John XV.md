@@ -1,0 +1,1 @@
+Bishop of Rome and nominal ruler of the Papal States from 20 August 985 to 1 April 996. Succeeded by [[Gregory V]].

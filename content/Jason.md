@@ -1,0 +1,1 @@
+Jewish convert and early Christian believer, citizen of [[Thessalonica]].

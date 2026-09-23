@@ -1,0 +1,1 @@
+Prophetess, wife to [[Shallum]].

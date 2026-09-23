@@ -1,0 +1,1 @@
+Bishop of Rome from 10 September 422 to his death on 27 July 432. Succeeded by [[Sixtus III]].

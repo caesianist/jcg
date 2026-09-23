@@ -1,0 +1,1 @@
+City in the tribe of [[Ephraim]], north of [[Shechem]]. As [[Abimelech]] approached to set the tower which the inhabitants of Thebez retreated to on fire, a woman dropped an upper millstone on his head, fatally wounding him before he had his armor-bearer kill him.

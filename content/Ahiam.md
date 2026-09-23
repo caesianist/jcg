@@ -1,0 +1,1 @@
+Son of [[Sharar]], also known as [[Sachar]]. One of [[David]]'s warriors.

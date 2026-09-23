@@ -1,0 +1,1 @@
+Person who some in [[Corinth]] are associated with brought reports of factionalism in the Corinthian church to [[Paul]].

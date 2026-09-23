@@ -1,0 +1,1 @@
+One of the Seven Deacons chosen to care for the poor of the Christian community in Jerusalem.

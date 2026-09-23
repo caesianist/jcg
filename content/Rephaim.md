@@ -1,0 +1,1 @@
+An ancient Palestinian people in which included numerous giants, in [[Joshua 15]] is a location however that is the boundary between the territories of [[Judah]] and [[Benjamin]]. Subdued by [[Chedorlaomer]].

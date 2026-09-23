@@ -1,0 +1,1 @@
+One of the descendants of giants, killed by [[Sibbecai]].

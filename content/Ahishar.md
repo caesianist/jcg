@@ -1,0 +1,1 @@
+Served as a high-ranking official in the court of King [[Solomon]].

@@ -1,0 +1,1 @@
+Father of [[Shelomith]], a member of the tribe of [[Dan]].

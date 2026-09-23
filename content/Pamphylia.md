@@ -1,0 +1,1 @@
+Region in the south of Asia Minor in Western Asia, between Lycia and Cilicia, extending from the Mediterranean to Mount Taurus (all in modern-day Antalya province, Turkey).

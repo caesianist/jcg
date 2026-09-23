@@ -1,0 +1,1 @@
+City located on the coast of the Mediterranean Sea in northern Israel. [[Asher]] attempted to take this area from the [[Canaanites]] but failed.

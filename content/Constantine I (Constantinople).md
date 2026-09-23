@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 675 to 677. Succeeded by [[Theodore I (Constantinople)]].

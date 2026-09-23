@@ -1,0 +1,1 @@
+Father of [[Bilhah]], brother of [[Deborah]] according to [[Testament of Naphtali]].

@@ -1,0 +1,1 @@
+Divine figure/personification associated with the restoration of souls.

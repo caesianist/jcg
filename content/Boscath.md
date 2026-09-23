@@ -1,0 +1,1 @@
+A town in the Kingdom of [[Judah]], birth place of [[Adaiah]] and [[Jedidah]].

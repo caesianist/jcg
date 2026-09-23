@@ -1,0 +1,1 @@
+Wife of [[Uriah]] and later having 5 children with [[David]], being [[Shammua]], [[Shobab]], [[Nathan]], and [[Solomon]].

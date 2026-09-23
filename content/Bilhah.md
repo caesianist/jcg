@@ -1,0 +1,1 @@
+First mentioned in [[Genesis 29]] as a handmaid of [[Laban]] who was given to his daughter [[Rachel ]]to be her handmaid on Rachel's marriage to [[Jacob]]. When Rachel failed to have children, Rachel offered Bilhah to Jacob as a concubine to bear him children on her behalf. Bilhah gave birth to two sons, whom Rachel claimed as her own and named [[Dan]] and [[Naphtali]].

@@ -1,0 +1,1 @@
+Active around 612 BC, was a prophet whose oracles and prayer are recorded in the [[Book of Habakkuk]].

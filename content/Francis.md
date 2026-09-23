@@ -1,0 +1,1 @@
+Head of the Catholic Church and sovereign of Vatican City from 13 March 2013 until his death in 2025. Succeeded by [[Leo XIV]].

@@ -1,0 +1,1 @@
+Chief tax-collector at [[Jericho]]. His story includes his faith in climbing a sycamore tree to see [[Jesus]] and also his generosity in giving away half of all he possessed.

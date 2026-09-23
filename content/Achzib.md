@@ -1,0 +1,1 @@
+City in [[Shephelah]] of [[Judah]]. Also known as [[Chezib]].

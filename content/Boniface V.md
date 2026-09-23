@@ -1,0 +1,1 @@
+Bishop of Rome from 23 December 619 to his death on 25 October 625. Succeeded by [[Honorius I]].

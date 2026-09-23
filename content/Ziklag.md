@@ -1,0 +1,1 @@
+Biblical name of a town in the [[Negev]] region in the southwest of what was the Kingdom of [[Judah]].

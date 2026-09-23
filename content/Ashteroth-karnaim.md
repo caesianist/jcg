@@ -1,0 +1,1 @@
+An ancient city of Palestine taken by [[Chedorlaomer]].

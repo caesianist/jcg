@@ -1,0 +1,1 @@
+According to the New Testament, he was the second of the apostles of [[Jesus]] to die, and the first to be martyred after being killed by king [[Herod Agrippa]].

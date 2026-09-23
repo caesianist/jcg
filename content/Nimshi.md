@@ -1,0 +1,1 @@
+Possibly a mother of [[Jehu]], and debatably daughter of [[Omri]].

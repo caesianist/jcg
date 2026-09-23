@@ -1,0 +1,1 @@
+City on the shore of the Red Sea, near [[Ezion-geber]].

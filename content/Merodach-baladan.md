@@ -1,0 +1,1 @@
+Chaldean ruler from the Bit-Yakin tribe, seized the Babylonian throne in 722 BC from Assyrian control and reigned from 722 BC to 710 BC, and from 703 BC to 702 BC. Often considered illegitimate ruler.

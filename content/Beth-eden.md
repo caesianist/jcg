@@ -1,0 +1,1 @@
+Meaning "house of pleasure" or "house of delight," area part of the Aramean kingdom.

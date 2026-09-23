@@ -1,0 +1,1 @@
+Hellenistic Jewish scribe, sage, and allegorist from Seleucid-controlled Jerusalem of the Second Temple period. He is the author of the [[Book of Sirach]], also known as "Ecclesiasticus".

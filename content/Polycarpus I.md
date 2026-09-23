@@ -1,0 +1,1 @@
+Bishop of Byzantium from 69 until his death in 89 AD. Succeeded by [[Plutarch]]. 

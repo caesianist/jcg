@@ -1,0 +1,1 @@
+One of the twelve apostles of [[Jesus]], was also a fisherman, was also initially a disciple of [[John the Baptist]]. Alleged founder of the see of Constantinople and first bishop of Byzantium, who was succeeded by [[Stachys the Apostle]].

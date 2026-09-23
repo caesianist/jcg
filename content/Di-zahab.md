@@ -1,0 +1,1 @@
+Location near [[Hazeroth]]. The Hebrew term "Di" can imply "enough" or "sufficiency," while "zahab" translates to "gold." This suggests that the area may have been known for its wealth or resources, particularly in gold.

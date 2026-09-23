@@ -1,0 +1,1 @@
+Mountain near the Palestinian city of Nablus and [[Shechem]].

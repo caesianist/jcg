@@ -1,0 +1,1 @@
+Gnostic figure (sometimes multiple) that can also encompass this idea of knowledge. a feminine figure, analogous to the human soul but also simultaneously one of the feminine aspects of God. Gnostics held that she was the syzygy, or female twin, of [[Jesus]], and was the Holy Spirit. Also known as [[Pistis]].

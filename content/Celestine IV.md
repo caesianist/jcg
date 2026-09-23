@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 25 October 1241 to his death on 10 November 1241. Succeeded by [[Innocent IV]].

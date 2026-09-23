@@ -1,0 +1,1 @@
+Wife of [[Probus]], a wealthy/noble ruler in Spain who converts to Christianity after hearing about [[Paul the Apostle]]. She is also [[Polyxena]]’s older sister.

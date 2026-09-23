@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople (1657–1662, 1665–1667, 1671, 1675–1676, 1684–1685). Succeeded by [[Dionysius III]], [[Clement (Constantinople)]], [[Dionysius IV]] twice, and [[James (Constantinople)]].

@@ -1,0 +1,1 @@
+8th-century BC Israelite prophet after whom the [[Book of Isaiah]] is named.

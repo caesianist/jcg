@@ -1,0 +1,1 @@
+Location in [[Rephidim]] named by [[Moses]] after he struck a rock at [[Horeb]].

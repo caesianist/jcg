@@ -1,0 +1,1 @@
+Concubine of [[Saul]], daughter of [[Aiah]].

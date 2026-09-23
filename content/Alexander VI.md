@@ -1,0 +1,1 @@
+Head of the Catholic Church and leader of the Papal States from 11 August 1492 until his death in 1503. Succeeded by [[Pius III]].

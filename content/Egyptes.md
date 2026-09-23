@@ -1,0 +1,1 @@
+Name for [[Egyptus]], daughter of [[Ham]] in pre-1835 manuscripts of the [[Book of Abraham]].

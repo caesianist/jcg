@@ -1,0 +1,8 @@
+CHAPTER XLVII
+A Question: Whether, if we ought to love all Things, we ought to love Sin also?
+
+ 
+
+Some may put a question here and say: “If we are to love all things, must we then love sin too?” I answer: No. When I say “all things,” I mean all Good; and all that is, is good, in so far as it hath Being. The Devil is good in so far as he hath Being. In this sense nothing is evil, or not good. But sin is to will, desire, or love otherwise than as God doth. And Willing is not Being, therefore it is not good. Nothing is good except in so far as it is in God and with God. Now all things have their Being in God, and more truly in God than in themselves, and therefore all things are good in so far as they have a Being, and if there were aught that had not its Being in God, it would not be good. Now behold, the willing or desiring which is contrary to God is not in God; for God cannot will or desire anything contrary to Himself, or otherwise than Himself. Therefore it is evil or not good, and is merely nought.
+
+God loveth also works, but not all works. Which then? Such as are done from the teaching and guidance of the True Light and the True Love; and what is done from these and in these, is done in spirit and in truth, and what is thereof, is God’s, and pleaseth Him well. But what is done of the false Light and false Love, is all of the Wicked One; and especially what happeneth, is done or left undone, wrought or suffered from any other will, or desire, or love, than God’s will, or desire, or love. This is, and cometh to pass, without God and contrary to God, and is utterly contrary to good works, and is altogether sin.

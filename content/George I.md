@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 679 to 686. Succeeded by [[Theodore I (Constantinople)]] who became patriarch again.

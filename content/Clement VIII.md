@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 30 January 1592 to his death in March 1605. Succeeded by [[Leo XI]].

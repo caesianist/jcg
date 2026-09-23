@@ -1,0 +1,1 @@
+Name of one of the Levitical cities given to "the children of [[Aaron]]" in the tribe of [[Benjamin]]. Residents were called [[Antothites]] or [[Anetothites]].

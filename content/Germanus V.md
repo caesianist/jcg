@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 10 February 1913 until his resignation in 25 October 1918. Succeeded by [[Meletius Metaxakis]].

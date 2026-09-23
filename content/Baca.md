@@ -1,0 +1,1 @@
+The Hebrew word baca is related to bakah, which means “to weep.” Located near Jerusalem.

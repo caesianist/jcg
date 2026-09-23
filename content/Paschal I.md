@@ -1,0 +1,1 @@
+Bishop of Rome and leader of the Papal States from 25 January 817 to his death in 824. Succeeded by [[Eugene II]].

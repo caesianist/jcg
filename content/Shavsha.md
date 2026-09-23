@@ -1,0 +1,1 @@
+A secretary to king [[David]].

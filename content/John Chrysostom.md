@@ -1,0 +1,1 @@
+Archbishop of Constantinople from 398 to 404. Succeeded by [[Arsacius]].

@@ -1,0 +1,1 @@
+Son of [[Zabad]], father of [[Obed]].

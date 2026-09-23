@@ -1,0 +1,1 @@
+Writer mentioned in [[Gospel of Pseudo-Matthew]] with unknown identity.

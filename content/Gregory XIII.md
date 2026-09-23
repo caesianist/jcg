@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 13 May 1572 to his death in April 1585. He is best known for commissioning and being the namesake for the Gregorian calendar, which remains the internationally accepted civil calendar to this day. Succeeded by [[Sixtus V]].

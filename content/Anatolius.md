@@ -1,0 +1,1 @@
+Patriarch of Constantinople (November 449 – 3 July 458). Succeeded by [[Gennadius I]].

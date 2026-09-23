@@ -1,0 +1,1 @@
+Also known as [[Himeros]], the masculine [[Eros]], personification of love/sexual desire.

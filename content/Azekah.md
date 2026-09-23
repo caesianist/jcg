@@ -1,0 +1,1 @@
+Town in [[Shephelah]], about 16 miles northwest of [[Hebron]].

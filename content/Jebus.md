@@ -1,0 +1,1 @@
+Territory that would later become Jerusalem. Inhabits of Jebus were [[Jebusites]].

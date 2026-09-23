@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 7 September 1159 until his death in 1181. Held the [[Third Council of the Lateran]]. Succeeded by [[Lucius III]].

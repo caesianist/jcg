@@ -1,0 +1,1 @@
+Born in 1797, brother of [[Joseph Smith Jr.]] who died at 26 on November 19th, 1823.

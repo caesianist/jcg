@@ -1,0 +1,1 @@
+Location that appears on the northern border of the land of [[Canaan]].

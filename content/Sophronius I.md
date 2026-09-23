@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from June 1463 to August 1464. Succeeded by [[Gennadius II]].

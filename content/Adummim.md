@@ -1,0 +1,1 @@
+Situated on the road from [[Jericho]] to Jerusalem.

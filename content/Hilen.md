@@ -1,0 +1,1 @@
+Area in the southern part of [[Judah]]'s inheritance, possibly near [[Hebron]].

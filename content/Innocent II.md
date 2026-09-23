@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 14 February 1130 to his death in 1143. He went on to preside over the [[Second Council of the Lateran]]. Succeeded by [[Celestine II]].

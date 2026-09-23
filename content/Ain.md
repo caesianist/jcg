@@ -1,0 +1,1 @@
+City near [[Riblah]] and the Promised Land.

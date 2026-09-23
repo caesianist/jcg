@@ -1,0 +1,1 @@
+Son of [[Ephah]] and [[Caleb]], but later says [[Haran]] became father to Gazez.

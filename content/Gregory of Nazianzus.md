@@ -1,0 +1,1 @@
+Archbishop of Constantinople from 380 to 381. Succeeded by [[Nectarius]].

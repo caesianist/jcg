@@ -1,0 +1,1 @@
+The third luminary to arise from God in some Gnostic literature.

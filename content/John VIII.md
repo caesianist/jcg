@@ -1,0 +1,1 @@
+Bishop of Rome from 14 December 872 to his death 16 December 882. Succeeded by [[Marinus I]].

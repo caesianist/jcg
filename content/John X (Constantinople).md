@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 5 August 1198 to May 1206. Succeeded by [[Michael IV]].

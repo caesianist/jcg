@@ -1,0 +1,1 @@
+Hebrew prophet active during the building of the Second Temple in Jerusalem and the author or subject of the [[Book of Haggai]]. He is known for his prophecy in 520 BCE, commanding the Jews to rebuild the Temple.

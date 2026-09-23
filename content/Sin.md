@@ -1,0 +1,1 @@
+Wilderness between [[Elim]] and [[Sinai]].

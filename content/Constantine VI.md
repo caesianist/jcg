@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 17 December 1924 until his resignation on 22 May 1925. Succeeded by [[Basil III]].

@@ -1,0 +1,1 @@
+Brother of [[Goliath]]. As for if this person existed is widely disputed as their name is meant to mean "my bread" in a northwest Semitic language, which was not the language of the inhabitants of [[Gath]] which Lahmi and Goliath were from.

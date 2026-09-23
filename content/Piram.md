@@ -1,0 +1,1 @@
+King of [[Jarmuth]] during [[Joshua]]'s conquest. 

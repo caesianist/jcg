@@ -1,0 +1,1 @@
+People struck by [[Chedorlaomer]].

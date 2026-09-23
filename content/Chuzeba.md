@@ -1,0 +1,1 @@
+May be associated with [[Chezib]], a location associated with the birth of [[Judah]]'s son, [[Shelah]].

@@ -1,0 +1,1 @@
+One of the princes or commanders of [[Nebuchadnezzar]]'s army against Jerusalem at its downfall.

@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 21 January to 22 June 1276. Succeeded by [[Adrian V]].

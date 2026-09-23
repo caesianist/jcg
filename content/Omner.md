@@ -1,0 +1,1 @@
+Was a son of King [[Mosiah II]].

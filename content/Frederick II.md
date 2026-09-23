@@ -1,0 +1,1 @@
+King of Sicily from 1198, King of Germany from 1212, King of Italy and Holy Roman Emperor from 1220, and King of Jerusalem from 1225 to 1228. 

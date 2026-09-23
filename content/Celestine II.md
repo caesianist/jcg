@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 26 September 1143 to his death on 8 March 1144. Succeeded by [[Lucius II]].

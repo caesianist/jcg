@@ -1,0 +1,1 @@
+The first king of [[Edom]] through elective monarchy supposedly. Succeeded by [[Jobab ben Zerah]].

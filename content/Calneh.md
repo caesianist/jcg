@@ -1,0 +1,1 @@
+Between [[Carchemish]] on the Euphrates River and [[Arpad]] near Aleppo in Northern Syria, about ten kilometers southeast from Arpad.

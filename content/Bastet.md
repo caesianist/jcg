@@ -1,0 +1,1 @@
+Goddess of ancient Egyptian religion, possibly of Nubian origin, worshipped as early as the Second Dynasty (2890 BCE). Bastet was worshipped in [[Pi-beseth]] in Lower Egypt, originally as a lioness goddess.

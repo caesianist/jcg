@@ -1,0 +1,1 @@
+The name of a place where [[Samson]] slain numerous [[Philistines]] in/around [[Lehi]].

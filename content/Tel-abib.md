@@ -1,0 +1,1 @@
+Meaning "the hill of Spring" an unidentified tell ("hill city") near [[Chebar]].

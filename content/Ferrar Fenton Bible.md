@@ -1,0 +1,1 @@
+Published in 1903, believing the Christian faith would be lost unless a modern English version of the Bible were produced, London businessman [[Ferrar Fenton]] (1832–1920) began working on a translation of the Bible.

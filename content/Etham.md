@@ -1,0 +1,1 @@
+A camping place for the [[Israelites]] in the wilderness which is near [[Succoth]].

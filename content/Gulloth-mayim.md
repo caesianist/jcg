@@ -1,0 +1,1 @@
+Area around 5 kilometers from [[Debir]].

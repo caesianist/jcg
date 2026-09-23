@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1797 to 1798, from 1806 to 1808, and from 1818 to 1821. Succeeded by [[Neophytus VII]], [[Callinicus V]], and [[Eugenius II]].

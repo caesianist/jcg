@@ -1,0 +1,1 @@
+Tribe within [[Canaan]] that inhabited Jerusalem before the conquest initiated in [[Joshua 11]], Jerusalem at the time was known as [[Jebus]].

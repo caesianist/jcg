@@ -1,0 +1,1 @@
+A garment/manifestation of the revealer, specifically one having two forms.

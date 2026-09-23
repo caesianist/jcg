@@ -1,0 +1,1 @@
+Title given to [[Cain]] and later [[Lamech]] according to the theology of the Latter Day Saints. The title indicates that Cain and Lamech were each the "master" of a "great secret" in which they covenanted with Satan to kill for personal gain.

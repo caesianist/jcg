@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 677 to 679. Succeeded by [[George I]] the first time, [[Paul III (Constantinople)]] the second time.

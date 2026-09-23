@@ -1,0 +1,1 @@
+Ancient Greek city located at a strategic point on the Aegean coast of Anatolia.

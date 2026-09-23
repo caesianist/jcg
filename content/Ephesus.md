@@ -1,0 +1,1 @@
+City on the coast of Ionia, in present-day Selçuk in İzmir Province, Turkey.

@@ -1,0 +1,1 @@
+Western portion of the southern frontier of the Kingdom of [[Judah]].

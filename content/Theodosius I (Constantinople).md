@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1179 to 1183. Succeeded by [[Basil II]].

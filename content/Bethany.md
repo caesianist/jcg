@@ -1,0 +1,1 @@
+Town in the Jerusalem Governorate of Palestine, bordering East Jerusalem, in the West Bank. Home of [[Lazarus]], [[Martha]], and [[Mary]] of Bethany.

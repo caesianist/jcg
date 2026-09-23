@@ -1,0 +1,1 @@
+Chief of the court officials, or the chief eunuch, serving under King [[Nebuchadnezzar]] of Babylon.

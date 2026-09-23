@@ -1,0 +1,1 @@
+A king of [[Edom]], succeeded by [[Samlah]].

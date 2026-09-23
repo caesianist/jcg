@@ -1,0 +1,1 @@
+Near the threshing floor of [[Nacon]], on the route from [[Kiriath-jearim]] to Jerusalem. 

@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 1 September 1181 to his death in 1185. His papacy was marked by conflicts with Holy Roman Emperor [[Frederick I]], his exile from Rome, and the initial preparations for the [[Third Crusade]]. Succeeded by [[Urban III]]. 

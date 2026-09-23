@@ -1,0 +1,1 @@
+Area given to the tribe of [[Asher]]. Hebrew word that broadly refers to a "proverb," "parable," or "saying." It is derived from a root that means "to be like" or "to compare."

@@ -1,0 +1,1 @@
+King of the Saite-based Twenty-sixth Dynasty of Egypt (595 BC – 589 BC). 

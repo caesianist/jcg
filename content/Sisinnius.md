@@ -1,0 +1,1 @@
+Bishop of Rome from 15 January 708 to his death on 4 February 708. Succeeded by [[Constantine]].

@@ -1,0 +1,1 @@
+A king of [[Edom]], sometimes thought to be the [[Job]] in the [[Book of Job]], succeeded by [[Husham]].

@@ -1,0 +1,1 @@
+King of [[Aram-naharaim]], or Northwest Mesopotamia, and the first oppressor of the [[Israelites]] after their settlement in [[Canaan]]. God delivers them under his rule for 8 years as punishment for polytheism, and afterwards they appeased God, [[Othniel]] was sent to save them.

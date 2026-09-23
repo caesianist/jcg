@@ -1,0 +1,1 @@
+A descendant of king [[Saul]].

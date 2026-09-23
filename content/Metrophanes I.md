@@ -1,0 +1,1 @@
+Bishop of Byzantium from c. 306 to 314. Succeeded by [[Alexander of Constantinople]].

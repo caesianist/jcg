@@ -1,0 +1,1 @@
+A garment of the revealer.

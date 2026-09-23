@@ -1,0 +1,1 @@
+Location in the Jordan valley, near [[Adam]] and [[Jericho]].

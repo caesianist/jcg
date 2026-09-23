@@ -1,0 +1,1 @@
+One of the appointed temple musicians under King [[David]].

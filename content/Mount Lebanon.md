@@ -1,0 +1,1 @@
+A mountain range in Lebanon. It is about 170 km (110 mi) long.

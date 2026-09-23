@@ -1,0 +1,1 @@
+A king of [[Moab]], son of [[Zippor]].

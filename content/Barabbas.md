@@ -1,0 +1,1 @@
+Jewish bandit who was imprisoned by the Roman occupation in Jerusalem, only to be chosen over [[Jesus]] by a crowd of Judean citizens and Passover pilgrims to be pardoned by Roman governor [[Pontius Pilate]] at the Passover feast.

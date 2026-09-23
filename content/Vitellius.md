@@ -1,0 +1,1 @@
+Roman emperor, ruling for eight months from 19 April to 20 December AD 69. Succeeded by [[Vespasian]].

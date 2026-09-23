@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 6 March 1447 until his death in March 1455. Succeeded by [[Callixtus III]].

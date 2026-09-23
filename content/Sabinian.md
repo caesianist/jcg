@@ -1,0 +1,1 @@
+Bishop of Rome from 13 September 604 to his death on 22 February 606. Succeeded by [[Boniface III]].

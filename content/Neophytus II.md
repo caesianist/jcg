@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople twice, in 1602–1603 and in 1607–1612. Succeeded by [[Matthew II]] the first time, [[Cyril I]] the second time.

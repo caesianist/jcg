@@ -1,0 +1,1 @@
+Located east of the Jordan River, in the region of [[Gilead]]. 

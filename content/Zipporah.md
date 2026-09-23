@@ -1,0 +1,1 @@
+Wife of [[Moses]], daughter of [[Jethro]], and mother of [[Eliezer]] and [[Gershom]].

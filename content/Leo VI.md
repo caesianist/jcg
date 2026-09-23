@@ -1,0 +1,1 @@
+Bishop of Rome and nominal ruler of the Papal States for just over seven months, from June 928 to his death in February 929. Succeeded by [[Stephen VII]].

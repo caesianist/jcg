@@ -1,0 +1,1 @@
+City in the eastern extremes of Egypt's Nile Delta, 30 km (19 mi) to the southeast of the modern Port Said.

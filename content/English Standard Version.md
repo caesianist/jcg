@@ -1,0 +1,1 @@
+The ESV, published by Crossway, is derived from the text of the [[Revised Standard Version]]. 

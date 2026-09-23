@@ -1,0 +1,1 @@
+A land where the people of God came out from in [[Moses 6]].

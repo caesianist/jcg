@@ -1,0 +1,1 @@
+One of the chiefs of the tribe of [[Gad]].

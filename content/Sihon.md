@@ -1,0 +1,1 @@
+King of the [[Amorites]] who refused to let the [[Israelites]] pass through his country, he was defeated by [[Moses]] and the Israelites at the battle of [[Jahaz]]. 

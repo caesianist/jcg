@@ -1,0 +1,1 @@
+The name "Eglaim" is derived from the Hebrew word meaning "two ponds" or "double reservoir," area in [[Moab]].

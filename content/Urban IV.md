@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 29 August 1261 to his death three years later. Succeeded by [[Clement IV]].

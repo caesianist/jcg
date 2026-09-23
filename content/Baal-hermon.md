@@ -1,0 +1,1 @@
+Possibly near [[Hermon]]. It is eventually occupied by the tribe of [[Manasseh]] in in [[1 Chronicles 5]].

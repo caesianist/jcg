@@ -1,0 +1,1 @@
+The chief angelic mediator in the [[Apocalypse of Abraham]].

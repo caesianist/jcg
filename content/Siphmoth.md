@@ -1,0 +1,1 @@
+Settlement in the southern part of ancient [[Judah]].

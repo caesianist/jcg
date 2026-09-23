@@ -1,0 +1,1 @@
+Descendant of [[Parosh]]. Listed among the [[Levites]] who had married foreign wives after the [[Israelites]] returned from Babylonian exile. 

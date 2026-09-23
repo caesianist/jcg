@@ -1,0 +1,1 @@
+Bishop of Rome from 30 July 657 to his death in 672. Succeeded by [[Adeodatus II]].

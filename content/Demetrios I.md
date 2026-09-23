@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 16 July 1972, until his death in October 1991. Succeeded by [[Bartholomew I]].

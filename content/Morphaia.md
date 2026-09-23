@@ -1,0 +1,1 @@
+An archon associated with the governance of the heavens and the stars. When the Righteous One appeared in Nature, Nature became angry and “granted to Morphaia to visit heaven.”

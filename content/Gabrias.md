@@ -1,0 +1,1 @@
+Brother of [[Gabael]], but also called father of Gabael later.

@@ -1,0 +1,1 @@
+Wife of [[Ashhur]], mother of [[Ahuzam]], [[Hepher]], [[Temeni]] and [[Haahashtari]].

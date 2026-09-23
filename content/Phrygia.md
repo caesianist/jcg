@@ -1,0 +1,1 @@
+Kingdom in the west-central part of Anatolia, in what is now Asian Turkey, centered on the Sangarios River.

@@ -1,0 +1,1 @@
+Situated in the region of [[Benjamin]], near [[Gibeah]] and [[Michmash]]. 

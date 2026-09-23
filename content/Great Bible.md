@@ -1,0 +1,1 @@
+King [[Henry VIII]] of England authorized [[Myles Coverdale]] to create an edited version of [[William Tyndale]]'s work. Called “great” because of its large size, it was revised to remove the ‘objectionable’ parts of Tyndale’s previous work. Coverdale didn’t translate from the original Hebrew, Aramaic, and Greek texts, and this led to the creation of the [[Bishop's Bible]].

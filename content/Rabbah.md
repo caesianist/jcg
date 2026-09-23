@@ -1,0 +1,1 @@
+Located in the region that is present-day Amman in Jordan, associated with the [[Ammonites]].

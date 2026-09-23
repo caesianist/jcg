@@ -1,0 +1,1 @@
+Location in [[Moab]] but also used to refer to a deity of [[Moab]] and more specifically later the [[Ammonites]].

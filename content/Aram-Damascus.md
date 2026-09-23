@@ -1,0 +1,1 @@
+Polity that existed from the late 12th century BCE to 732 BCE and was centred on the city of Damascus, in the Southern Levant.

@@ -1,0 +1,1 @@
+Father of [[Ittai]] also known as [[Ithai]].

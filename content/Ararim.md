@@ -1,0 +1,1 @@
+Creator of the left shoulder joint in [[Apocryphon of John]].

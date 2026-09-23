@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 715 to 730. Succeeded by [[Anastasius (Constantinople)]].

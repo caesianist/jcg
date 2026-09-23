@@ -1,0 +1,1 @@
+East of [[Eden]], was where [[Cain]] was exiled after the murder of his brother [[Abel]].

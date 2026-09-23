@@ -1,0 +1,1 @@
+Virgin who was given to king [[David]] when he was older to tend to him.

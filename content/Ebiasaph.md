@@ -1,0 +1,1 @@
+Descendant of [[Korah]], name can be translated to mean "the father has gathered" or "my father has added."

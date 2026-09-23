@@ -1,0 +1,1 @@
+Situated in [[Shephelah]], the lowland region of [[Judah]], approximately 15 miles west of Jerusalem. 

@@ -1,0 +1,1 @@
+Southern part of the land of [[Judah]], likely near the Dead Sea.

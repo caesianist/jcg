@@ -1,0 +1,1 @@
+One of the Sethian Gnostic beings who preside over mountains.

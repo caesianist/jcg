@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 607 to 610. Succeeded by [[Sergius I (Constantinople)]].

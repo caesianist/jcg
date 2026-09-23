@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 3 June to December 1216. Succeeded by [[Manuel I]].

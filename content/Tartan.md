@@ -1,0 +1,1 @@
+A title within the military hierarchy of Assyria.

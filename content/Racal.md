@@ -1,0 +1,1 @@
+Town in the southern part of [[Judah]], near the wilderness of [[Paran]].

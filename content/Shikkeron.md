@@ -1,0 +1,1 @@
+Location on the border of the tribal inheritance of [[Judah]], situated near [[Ekron]].

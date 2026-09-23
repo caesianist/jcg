@@ -1,0 +1,1 @@
+A priest and a judge of the [[Israelites]] in the city of [[Shiloh]], ancient Israel. When [[Hannah]] came to Shiloh to pray for a son, Eli initially accused her of drunkenness, but when she protested her innocence, Eli wished her well. Hannah's eventual child, [[Samuel]], was raised by Eli in the tabernacle.

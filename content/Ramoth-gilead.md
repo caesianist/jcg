@@ -1,0 +1,1 @@
+City of refuge east of the Jordan river, located in the tribal territorial allotment of the tribe of [[Gad]]. The base of [[Ben-geber]]. Also in this city, [[Elisha]], the prophet of God told one of the sons of the prophets to anoint [[Jehu]] king over Israel.

@@ -1,0 +1,1 @@
+A city in the Decapolis, a group of ten cities on the eastern frontier of the Roman Empire in Judea and Syria.

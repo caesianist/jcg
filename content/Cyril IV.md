@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from December 1711 until his resignation in November 1713. Succeeded by [[Cyprianus]].

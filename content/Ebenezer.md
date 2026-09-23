@@ -1,0 +1,1 @@
+After a decisive victory over the [[Philistines]], [[Samuel]] set up a stone near [[Mizpah]] and named it Ebenezer, saying, "Thus far the LORD has helped us" . 

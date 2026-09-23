@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 1 April 1605 to his death, on 27 April 1605. Succeeded by [[Paul V]].

@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople in 996 and held the post until his death in 998. Succeeded by [[Sergius II (Constantinople)]].

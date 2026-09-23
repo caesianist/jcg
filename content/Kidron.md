@@ -1,0 +1,1 @@
+A narrow ravine running north-south along the eastern wall of Jerusalem, separating the Temple Mount from the [[Mount of Olives]], its brook drains toward the Dead Sea.

@@ -1,0 +1,1 @@
+One of the adversaries of the Jewish people during the period of their return from the Babylonian exile and the subsequent rebuilding of the temple in Jerusalem. 

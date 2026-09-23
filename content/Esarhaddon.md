@@ -1,0 +1,1 @@
+King of the Neo-Assyrian Empire from 681 to 669 BC, succeeded [[Sennacherib]].

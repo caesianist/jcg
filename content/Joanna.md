@@ -1,0 +1,1 @@
+Healed by [[Jesus]] and wife to [[Chuza]].

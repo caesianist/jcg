@@ -1,0 +1,1 @@
+[[Charles Thomson]] took 19 years to complete his translation of the Greek Septuagint (Old Testament). A Greek scholar, his was the first English translation. He released a New Testament in the same year. His finished work was published in four volumes and was printed in Philadelphia. One thousand sets were published. 

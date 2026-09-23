@@ -1,0 +1,1 @@
+Can either refer to a place of destruction that is a bottomless pit, and/or an angel of the abyss.

@@ -1,0 +1,1 @@
+Land where [[Ammonites]] seeking protection from fellow [[Lamanites]], resettled there about 76 BC.

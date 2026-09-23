@@ -1,0 +1,1 @@
+Patriarch of Jerusalem between 1669 and 1707 and a theologian of the Eastern Orthodox Church. He was known for standing against influences of the Roman Catholic and Protestant churches. He convened the [[Synod of Jerusalem]] in 1672 to counter the Calvinist confessions alleged to be from [[Cyril I]].

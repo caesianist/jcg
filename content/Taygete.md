@@ -1,0 +1,1 @@
+One of the [[Pleiades]], companion of [[Artemis]].

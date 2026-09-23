@@ -1,0 +1,1 @@
+Bishop of Rome and nominal ruler of the Papal States from 3 January 936 to his death on 13 July 939. Succeeded by [[Stephen VIII]].

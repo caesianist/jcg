@@ -1,0 +1,1 @@
+Son of [[Alma]], prophet of the [[Nephites]].

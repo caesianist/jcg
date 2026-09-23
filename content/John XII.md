@@ -1,0 +1,1 @@
+Bishop of Rome and nominal ruler of the Papal States from 16 December 955 to 14 May 964. Succeeded by [[Benedict V]].

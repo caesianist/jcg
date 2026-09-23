@@ -1,0 +1,1 @@
+Can either refer to a city or a chief within the [[Canaanites]].

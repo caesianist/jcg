@@ -1,0 +1,1 @@
+A title meaning "chief of the princes/cup-bearers" in the Semitic Akkadian and Aramaic languages. The title was given to the chief cup-bearer or the vizier of the Akkadian, Assyrian and Babylonian royal courts in ancient Mesopotamia.

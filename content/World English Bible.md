@@ -1,0 +1,1 @@
+An updated revision of the 1901 [[American Standard Version]]. It includes the Apocryphal books.

@@ -1,0 +1,1 @@
+The hometown of [[Pedaiah]] in the region of Galilee.

@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople in 1634 and 1652. Succeeded by [[Cyril I]] and [[Paisius I]].

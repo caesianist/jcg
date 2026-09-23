@@ -1,0 +1,1 @@
+Ruin in the Upper Galilee that came to renown during the First Jewish Revolt in the 1st-century CE. 

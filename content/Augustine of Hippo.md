@@ -1,0 +1,1 @@
+Born November 13th, 354, died August 28th, 430. Christian theologian and philosopher from Thagaste. He is generally regarded as one of the most influential philosophers in the history of the Western world, and he is viewed as one of the most important Church Fathers of the Latin Church in the Patristic Period. Author of [[Confessions]]. 

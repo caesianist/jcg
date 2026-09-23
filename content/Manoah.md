@@ -1,0 +1,1 @@
+Inhabitant of [[Zorah]], member of the [[Danites]], his wife and him were unable to conceive a child until an angel of God appeared and promised them a child, this child would be [[Samson]].

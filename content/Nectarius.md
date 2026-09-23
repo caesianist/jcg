@@ -1,0 +1,1 @@
+Archbishop of Constantinople from 381 until his death, September 27th, 397. Succeeded by [[John Chrysostom]].

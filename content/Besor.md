@@ -1,0 +1,1 @@
+Situated in the southern part of ancient [[Judah]], near the [[Negev]] desert.

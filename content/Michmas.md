@@ -1,0 +1,1 @@
+122 exiled Jews from this region returned after the exile.

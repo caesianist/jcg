@@ -1,0 +1,1 @@
+Region that spans parts of southern Syria and northern Jordan. 

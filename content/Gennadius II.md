@@ -1,0 +1,1 @@
+ Ecumenical Patriarch of Constantinople from 1454 to 1465 through 3 different times. Succeeded by [[Isidore II]] the first time, [[Sophronius I]] the second time, and [[Mark II]] the third time.

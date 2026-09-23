@@ -1,0 +1,1 @@
+Main character of [[Book of Tobit]]. Son of [[Tobiel]].

@@ -1,0 +1,1 @@
+Bishop of Rome from 401 to his death on 12 March 417. Succeeded by [[Zosimus]].

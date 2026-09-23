@@ -1,0 +1,1 @@
+Maritime and commercial city that was for a period the capital of Lycia. The site is located on the Turkish coast near to the village of Gelemiş, in Antalya Province.

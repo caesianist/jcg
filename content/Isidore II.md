@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1456 to 1462. Succeeded by [[Joasaph I]].

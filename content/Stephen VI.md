@@ -1,0 +1,1 @@
+Bishop of Rome and ruler of the Papal States from 22 May 896 until his death in August 897. Succeeded by [[Romanus]].

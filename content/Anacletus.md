@@ -1,0 +1,1 @@
+Bishop of Rome, succeeding [[Linus]]. Anacletus served between c. AD 80 and his death, c. AD 92. A Roman who, during his tenure as pope, ordained a number of priests and is traditionally credited with setting up about twenty-five parishes in Rome. Although the precise dates of his pontificate are uncertain, he "died a martyr, perhaps about 91". Succeeded by [[Clement I]].

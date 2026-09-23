@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople between 1191 and 1198. Succeeded by [[John X (Constantinople)]].

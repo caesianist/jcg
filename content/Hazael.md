@@ -1,0 +1,1 @@
+A king of [[Aram-Damascus]] from around 842 to 796 BCE, succeeded by his son [[Ben-Hadad III]]. 

@@ -1,0 +1,1 @@
+One of the apostles of [[Jesus]]. According to [[Acts 4]], he was a Cypriot Levite. He undertook missionary journeys as a companion of [[Paul the Apostle]], evangelizing among the "God-fearing" Gentiles who attended synagogues in some of the Hellenized cities of Anatolia. He was also a bishop of Milan, being succeeded by [[Anathalon]].

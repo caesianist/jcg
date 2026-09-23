@@ -1,0 +1,1 @@
+River starting somewhere in Turkey and then joins the Euphrates near the town of Busayrah in eastern Syria.

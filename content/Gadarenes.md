@@ -1,0 +1,1 @@
+The inhabitants of the region surrounding the city of [[Gadara]], a predominantly Gentile area east of the Jordan River.

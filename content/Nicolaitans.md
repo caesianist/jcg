@@ -1,0 +1,1 @@
+Early Christian sect mentioned twice in the Book of [[Revelation]] of the New Testament. They were considered heretical by the mainstream early Christian Church, they were known in the cities of [[Ephesus]] and [[Pergamum]].

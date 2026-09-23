@@ -1,0 +1,1 @@
+Son of [[Mered]], father of [[Eshtemoa]].

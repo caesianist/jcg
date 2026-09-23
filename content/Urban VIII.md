@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 6 August 1623 to his death, in July 1644. Succeeded by [[Innocent X]].

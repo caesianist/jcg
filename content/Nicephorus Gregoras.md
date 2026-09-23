@@ -1,0 +1,1 @@
+Byzantine astronomer, historian, and theologian. Beginning in 1346, Gregoras took an important part in the Hesychast controversy at the encouragement of the Empress Anna, by publishing a tract in which he staunchly opposed [[Gregory Palamas]], the chief supporter of the doctrine.

@@ -1,0 +1,1 @@
+An ancestor listed among the families returning from exile with [[Zerubbabel]] in [[Ezra 2]].

@@ -1,0 +1,1 @@
+Descendants of [[Canaan]] who inhabited Arvad/Arwad, an island city that is now part of Syria.

@@ -1,0 +1,1 @@
+Was the king of [[Gezer]] during the conquest by [[Joshua]].

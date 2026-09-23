@@ -1,0 +1,1 @@
+Son of [[Tabrimmon]], was king of [[Aram-Damascus]] between 885 BCE and 865 BCE, succeeded by [[Ben-Hadad II]].

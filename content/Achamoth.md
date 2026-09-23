@@ -1,0 +1,1 @@
+A lower [[Sophia]], the fallen/deficient manifestation of Wisdom who exists outside the divine [[Pleroma]].

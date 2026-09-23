@@ -1,0 +1,1 @@
+A smaller mountain or hill in the region of the [[Hermon]] range, which is located in the northern part of ancient Israel, near the borders of modern-day Lebanon and Syria. 

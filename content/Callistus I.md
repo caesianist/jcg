@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople for two periods from June 1350 to 1353 and from 1354 to 1363. Supporter of [[Gregory Palamas]]. Succeeded by [[Philotheus I]] both the first and second time.

@@ -1,0 +1,1 @@
+A town [[Jesus]] was at and encountered two disciples.

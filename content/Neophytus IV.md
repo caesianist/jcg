@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople (27 November 1688 – 7 March 1689). Succeeded by [[Callinicus II]].

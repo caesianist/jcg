@@ -1,0 +1,1 @@
+Located in [[Ramah]]. The prophet [[Samuel]] and [[David]] took refuge together there after David's escape from the jealous anger of King [[Saul]]. 

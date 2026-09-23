@@ -1,0 +1,1 @@
+Bishop of Rome and nominal ruler of the Papal States from October 974 to 10 July 983. Succeeded by [[John XIV]].

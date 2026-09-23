@@ -1,0 +1,1 @@
+Bishop of Rome and nominal ruler of the Papal States from 29 January 904 to his death on 14 April 911. Succeeded by [[Anastasius III]].

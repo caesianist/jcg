@@ -1,0 +1,1 @@
+Owner of the site upon which the city of Samaria was built in [[1 Kings 16]].

@@ -1,0 +1,1 @@
+Bishop of Rome from 21 July 649 to 653 or 654. Succeeded by [[Eugene I]].

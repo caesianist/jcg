@@ -1,0 +1,1 @@
+The sixth king of [[Judah]], and the son of [[Jehoram]] and [[Athaliah]], the daughter (or possibly sister) of king [[Ahab]] of Israel, the first king to be descended from both the House of David and the House of [[Omri]].

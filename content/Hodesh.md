@@ -1,0 +1,1 @@
+One of three wives of [[Shaharaim]].

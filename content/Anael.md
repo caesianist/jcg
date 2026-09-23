@@ -1,0 +1,1 @@
+Brother of [[Tobit]] and father of [[Ahikar]].

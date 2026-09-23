@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1397 to 1410, with a brief interruption in 1402–1403. Succeeded by [[Euthymius II]]. 

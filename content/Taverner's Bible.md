@@ -1,0 +1,1 @@
+A minor revision of [[Matthew's Bible]] edited by [[Richard Taverner]].

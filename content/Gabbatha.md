@@ -1,0 +1,1 @@
+Aramaic term for "The Pavement," the elevated stone-paved area in Jerusalem where [[Pontius Pilate]] judged [[Jesus]] before his crucifixion.

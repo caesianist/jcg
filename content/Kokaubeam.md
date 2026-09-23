@@ -1,0 +1,1 @@
+Term for series of stars.

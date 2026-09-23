@@ -1,0 +1,1 @@
+Situated in western Anatolia, in modern-day Turkey.

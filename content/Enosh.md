@@ -1,0 +1,1 @@
+Also known more simply as [[Enos]]. First son of [[Seth]] when he was 105 years old (according to Masoretic text) or 205 years old (according to Septuagint). Father of [[Kenan]] at 90 years old (or 190 according to Septuagint).

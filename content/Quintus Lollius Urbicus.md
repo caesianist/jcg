@@ -1,0 +1,1 @@
+Berber governor of Roman Britain between the years 139 and 142, during the reign of the Emperor [[Antoninus Pius]]. 

@@ -1,0 +1,1 @@
+An archangel with the power to announce God's will to humankind as the messenger of God. In some Gnostic literature such as [[Gospel of the Egyptians]], Gabriel is a luminary, possibly referring to same figure.

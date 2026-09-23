@@ -1,0 +1,1 @@
+Egyptian wife of [[Joseph]], mother of [[Manasseh]] and [[Ephraim]], daughter of [[Potiphera]].

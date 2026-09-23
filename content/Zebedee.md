@@ -1,0 +1,1 @@
+Father of [[James the Great]] and [[John the Apostle]], suggested to be the husband of [[Salome]].

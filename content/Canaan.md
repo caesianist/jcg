@@ -1,0 +1,5 @@
+Mentioned numerous times throughout the Old Testament, detailed primarily in [[Genesis 9]] and [[Genesis 10]]. An ancient Semitic-speaking civilization and region of the Southern Levant during the late 2nd millennium BC. Canaan had significant geopolitical importance in the Late Bronze Age Amarna Period (14th century BC) as the area where the spheres of interest of the Egyptians, [[Hittites]], Mitanni, and Assyrian Empires converged or overlapped. 
+
+The civilization in the scriptures is said to have come from Canaan, a person who was the son of [[Ham]] and grandson of [[Noah]].
+
+According to Gen 10, Canaan is the father of [[Sidon]], the Hittites, [[Jebusites]], [[Amorites]], [[Girgashites]], [[Hivites]], [[Arkites]], [[Sinites]], [[Arvadites]], [[Zemarites]], and [[Hamathites]]. Later the [[Canaanites]] scattered, and the borders of Canaan reached across the Mediterranean coast from Sidon toward [[Gerar]] as far as Gaza, and then inland around the Jordan Valley toward [[Sodom]], [[Gomorrah]], [[Admah]] and [[Zeboiim]], as far as [[Lasha]].

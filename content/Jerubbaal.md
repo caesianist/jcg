@@ -1,0 +1,1 @@
+Name given to [[Gideon]] in [[Judges 6]].

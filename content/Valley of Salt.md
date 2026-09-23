@@ -1,0 +1,1 @@
+Between [[Judah]] and [[Edom]] on the south of the Dead Sea. 

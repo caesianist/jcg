@@ -1,0 +1,1 @@
+King and son of [[Hezion]] and the father of [[Ben-Hadad I]].

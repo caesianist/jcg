@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople two times, from 1466 to 1471 and from 1488 to 1490. Succeeded by [[Symeon I]] the first time and [[Maximus IV]] the second time.

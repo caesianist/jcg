@@ -1,0 +1,1 @@
+Son of [[Jair]], one of the main personalities in the [[Book of Esther]], he is the cousin and guardian of [[Esther]].

@@ -1,0 +1,1 @@
+King of the Neo-Assyrian Empire from 783 BC to his death in 773 BC. 

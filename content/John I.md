@@ -1,0 +1,1 @@
+Bishop of Rome from 13 August 523 to his death on 18 May 526. Succeeded by [[Felix IV]].

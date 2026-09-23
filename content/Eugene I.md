@@ -1,0 +1,1 @@
+Bishop of Rome from 10 August 654 to his death on 2 June 657. Succeeded by [[Vitalian]].

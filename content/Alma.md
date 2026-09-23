@@ -1,0 +1,1 @@
+Prophet of the [[Nephites]], father of [[Alma II]], priest who served in the court of king [[Noah]].

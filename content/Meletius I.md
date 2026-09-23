@@ -1,0 +1,1 @@
+From 1597 to 1598 he served as locum tenens of the Ecumenical Patriarch of Constantinople. Succeeded by [[Matthew II]].

@@ -1,0 +1,1 @@
+Son of [[Levi]]. Father of [[Libni]] and [[Shimei]].

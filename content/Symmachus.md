@@ -1,0 +1,1 @@
+Bishop of Rome from 22 November 498 to his death on 19 July 514. Succeeded by [[Hormisdas]].

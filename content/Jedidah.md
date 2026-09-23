@@ -1,0 +1,1 @@
+The mother of king [[Josiah]], wife of king [[Amon]], and the daughter of [[Adaiah]], born in [[Boscath]].

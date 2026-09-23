@@ -1,0 +1,1 @@
+Southeast of Tel Aviv and 40 km (25 mi) northwest of Jerusalem in the Central District of Israel. It is situated between the lower [[Shephelah]] on the east and the coastal plain on the west. 

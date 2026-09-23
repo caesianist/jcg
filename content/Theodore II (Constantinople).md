@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople in exile in 1213–1216. Succeeded by [[Maximus II]].

@@ -1,0 +1,1 @@
+Bishop of Rome from 26 November 579 to his death on 7 February 590. Succeeded by [[Gregory I]].

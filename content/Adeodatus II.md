@@ -1,0 +1,1 @@
+Bishop of Rome from 672 to his death on 17 June 676. Succeeded by [[Donus]].

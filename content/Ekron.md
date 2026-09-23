@@ -1,0 +1,1 @@
+Also known as Accaron. At first a city of [[Canaan]] before being part of [[Philistia]].

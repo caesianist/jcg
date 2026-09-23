@@ -1,0 +1,1 @@
+Bishop of Rome from 25 June 253 to his death on 5 March 254. He was banished soon after his consecration, but gained permission to return. Succeeded by [[Stephen I]].

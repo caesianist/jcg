@@ -1,0 +1,1 @@
+Son of [[Isaac]], brother of [[Jacob]], the Genesis story between them aims to explain reflects the historical relationship between Israel and [[Edom]], aiming to explain why Israel, despite being a younger kingdom, dominated Edom. Progenitor of the [[Edomites]].

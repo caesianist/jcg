@@ -1,0 +1,1 @@
+Location mentioned in the Hebrew Bible, it has been identified with Tell Dothan also known as Tell al-Hafireh, located adjacent to the Palestinian town of Bir al-Basha.

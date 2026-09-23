@@ -1,0 +1,1 @@
+God from ancient Mesopotamia, patron deity of Babylon. First sparsely attested in the 3rd millennium BC, Marduk slowly rose to prominence before being enshrined as leader of the Mesopotamian pantheon under [[Nebuchadnezzar]] in the 2nd millennium BC. 

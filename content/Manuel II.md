@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from c. 1243 to 1254. Succeeded by [[Arsenius]].

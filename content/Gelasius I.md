@@ -1,0 +1,1 @@
+Bishop of Rome from 1 March 492 to his death on 21 November 496. Succeeded by [[Anastasius II]].

@@ -1,0 +1,1 @@
+Head of the Catholic Church from 2 November 1389 to his death, in October 1404. Succeeded by [[Innocent VII]].

@@ -1,0 +1,1 @@
+Town of [[Moab]] located in the Trans-Jordan, near [[Dibon]].

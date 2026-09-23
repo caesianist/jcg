@@ -1,0 +1,1 @@
+Bishop of Byzantium for 13 years (217 – 230). Succeeded by [[Castinus]].

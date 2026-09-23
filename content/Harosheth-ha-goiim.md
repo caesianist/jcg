@@ -1,0 +1,1 @@
+Fortress or cavalry base of [[Sisera]], its most likely modern location is the southern Lebanese village of Hariss.

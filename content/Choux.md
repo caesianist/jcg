@@ -1,0 +1,1 @@
+Activator of the right leg in [[Apocryphon of John]].

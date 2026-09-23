@@ -1,0 +1,1 @@
+Head of the Catholic Church and sovereign of Vatican City from 2005 until his resignation in 2013. Succeeded by [[Francis]].

@@ -1,0 +1,1 @@
+a comment inserted by [[Mormon (prophet)]], a Nephite, while compiling the records which became the [[Book of Mormon]]. 

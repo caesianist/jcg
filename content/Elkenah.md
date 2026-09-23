@@ -1,0 +1,1 @@
+Deity named in [[Abraham 1]].

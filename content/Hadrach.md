@@ -1,0 +1,1 @@
+Denoting a place, a king or a deity revered on the boundaries of Damascus. It is not certain.

@@ -1,0 +1,1 @@
+The inhabitants of ancient [[Canaan]], a region that roughly corresponds to present-day Israel and Palestine, western Jordan, southern and coastal Syria, Lebanon, and continued up to the southern border of Turkey. They are believed to have been one of the oldest civilizations in human history.

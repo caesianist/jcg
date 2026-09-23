@@ -1,0 +1,1 @@
+Roman emperor with [[Balbinus]] for 99 days in 238. Succeeded by [[Gordian III]].

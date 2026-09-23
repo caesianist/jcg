@@ -1,0 +1,1 @@
+Twelfth authority in [[Apocryphon of John]], ruler of the underworld, similar to Belial/Beliar, who is later personified as the devil in the Hebrew texts.

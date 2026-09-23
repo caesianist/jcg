@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from December 1923 until his death in November 1924. Succeeded by [[Constantine VI]].

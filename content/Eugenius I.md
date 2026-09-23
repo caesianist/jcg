@@ -1,0 +1,1 @@
+Bishop of Byzantium from around 240 until his death around 265 AD. Succeeded by [[Titus (Byzantium)]].

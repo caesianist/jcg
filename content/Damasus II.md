@@ -1,0 +1,1 @@
+Bishop of Rome and ruler of the Papal States from 17 July 1048 to his death on 9 August that same year. Succeeded by [[Leo IX]].

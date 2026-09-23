@@ -1,0 +1,1 @@
+Briefly a ruler of the Achaemenid Empire for a period in 424 to 423 BC, succeeded by [[Darius II]].

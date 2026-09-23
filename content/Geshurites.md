@@ -1,0 +1,1 @@
+Associated with the region of [[Geshur]], located in the northeastern part of the land of Israel, near the borders of [[Bashan]] and [[Aram]] (modern-day Syria).

@@ -1,0 +1,1 @@
+Bishop of Rome from 752 until his death in 757. Succeeded by [[Paul I]].

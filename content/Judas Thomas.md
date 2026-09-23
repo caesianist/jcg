@@ -1,0 +1,1 @@
+Can either refer to [[Thomas the Apostle]] or [[Jude the Apostle]], but it is uncertain.

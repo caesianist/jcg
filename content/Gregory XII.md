@@ -1,0 +1,1 @@
+Head of the Catholic Church from 30 November 1406 to 4 July 1415. Succeeded by [[Martin V]].

@@ -1,0 +1,1 @@
+Son of [[Ahisamach]] who worked under [[Bezalel]] as the deputy architect of the Tabernacle and the implements which it housed, including the Ark of the Covenant.

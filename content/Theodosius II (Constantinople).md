@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople between 1769 and 1773. Succeeded by [[Samuel (Constantinople)]].

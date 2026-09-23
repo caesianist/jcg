@@ -1,0 +1,1 @@
+Son of [[Neriah]], brother of [[Seraiah]], chamberlain of King [[Zedekiah]] of [[Judah]], scribe, disciple, secretary, and devoted friend of the Biblical prophet [[Jeremiah]]. He is traditionally credited with authoring the [[Book of Baruch]].

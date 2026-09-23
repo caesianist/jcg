@@ -1,0 +1,1 @@
+Supernatural/demonological figure associated with [[Solomon]].

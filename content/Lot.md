@@ -1,0 +1,1 @@
+Son of [[Haran]] who fled from the annihilation of [[Sodom]] and [[Gomorrah]].

@@ -1,0 +1,1 @@
+Son of [[Abihail]], member of the [[Merarites]].

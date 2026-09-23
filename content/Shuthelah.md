@@ -1,0 +1,1 @@
+Son of [[Zabad]] and [[Ephraim]] in [[1 Chronicles 7]].

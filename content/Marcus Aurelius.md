@@ -1,0 +1,1 @@
+Roman emperor from 161 to 180 and a Stoic philosopher. Succeeded by [[Commodus]].

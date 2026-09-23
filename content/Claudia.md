@@ -1,0 +1,1 @@
+Christian of 1st-century Rome, mentioned by [[Paul]] alongside [[Eubulus]], [[Pudens]] and [[Linus]].

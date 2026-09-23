@@ -1,0 +1,1 @@
+Roman emperor from 238 to 244. Succeeded by [[Philip the Arab]].

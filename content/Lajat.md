@@ -1,0 +1,1 @@
+The largest lava field in southern Syria, spanning some 900 square kilometers. Located about 50 kilometers (31 mi) southeast of Damascus,

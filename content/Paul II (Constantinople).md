@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1 October 641 to his death on 27 December 653. Succeeded by [[Pyrrhus I]].

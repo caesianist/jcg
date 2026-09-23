@@ -1,0 +1,1 @@
+Patriarch of the [[Merarites]], son of [[Levi]]. Father of [[Mahli]] and [[Mushi]].

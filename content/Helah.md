@@ -1,0 +1,1 @@
+A wife of [[Ashhur]], mother of [[Zereth]], [[Izhar]], and [[Ethnan]].

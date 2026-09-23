@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 5 December 1590 to his death, in October 1591. Succeeded by [[Innocent IX]].

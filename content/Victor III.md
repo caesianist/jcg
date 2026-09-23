@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 24 May 1086 to his death 16 September 1087. Succeeded by [[Urban II]].

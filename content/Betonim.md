@@ -1,0 +1,1 @@
+Town located within the territory allotted to the [[Gadites]].

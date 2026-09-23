@@ -1,0 +1,1 @@
+Aramaic equivalent of Simon Peter, a name for [[Peter the Apostle]].

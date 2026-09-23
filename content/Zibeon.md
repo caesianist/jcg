@@ -1,0 +1,1 @@
+Member of the [[Hivites]], a son of [[Seir]], father of [[Oholibamah]].

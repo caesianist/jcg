@@ -1,0 +1,1 @@
+Daughter of [[Ithobaal I]] and the wife of [[Ahab]], dying around 842 BC in [[Jezreel]].

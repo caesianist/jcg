@@ -1,0 +1,1 @@
+Name of [[Levi]]'s wife in [[Testament of Levi]].

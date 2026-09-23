@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 8 September 1276 to his death in May 1277. Succeeded by [[Nicholas III]].

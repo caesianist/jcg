@@ -1,0 +1,1 @@
+Was the scene of a victory gained by [[David]] over the [[Philistines]]. It is called [[Mount Perazim]] in [[Isaiah 28]]:21. It was near the Valley of [[Rephaim]], west of Jerusalem.

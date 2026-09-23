@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 780 to 784. Succeeded by [[Tarasios]].

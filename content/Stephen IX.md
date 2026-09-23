@@ -1,0 +1,1 @@
+Bishop of Rome and ruler of the Papal States from 3 August 1057 to his death on 29 March 1058. Succeeded by [[Nicholas II]].

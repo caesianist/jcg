@@ -1,0 +1,1 @@
+ Christian holiday that takes place on the 49th day (50th day when inclusive counting is used) after Easter. It commemorates the descent of the Holy Spirit upon the Apostles of [[Jesus]], [[Mary]], and other followers of Christ, while they were in Jerusalem.

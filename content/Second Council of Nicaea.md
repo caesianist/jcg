@@ -1,0 +1,1 @@
+Seventh ecumenical council recognized by the Eastern Orthodox and Catholic Church. The Council assembled in 787 AD in Nicaea to restore the use and veneration of icons (or holy images), which had been suppressed. After this was the [[Fourth Council of Constantinople]].

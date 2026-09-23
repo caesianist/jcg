@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople in 1154. Succeeded by [[Constantine IV]].

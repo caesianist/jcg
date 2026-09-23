@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 980 to 991. Succeeded by [[Sisinnius II]].

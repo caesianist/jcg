@@ -1,0 +1,1 @@
+Owner of a vineyard in [[Jezreel]] who eventually is killed and then king [[Ahab]], who wanted Naboth's vineyard, uses this as an excuse to seize it.

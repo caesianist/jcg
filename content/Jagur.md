@@ -1,0 +1,1 @@
+Southern part of the tribal territory of [[Judah]].

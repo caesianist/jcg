@@ -1,0 +1,1 @@
+Situated within the central highlands of [[Canaan]], was allotted to the tribe of [[Benjamin]].

@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople between 1157 and 1169. Succeeded by [[Michael III]].

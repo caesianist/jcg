@@ -1,0 +1,1 @@
+Son of [[Abijah]], father (or grandfather?) of [[Tekoa]], husband of [[Helah]] and [[Naarah]].

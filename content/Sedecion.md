@@ -1,0 +1,1 @@
+Bishop of Byzantium from 105 to 114 AD. Succeeded by [[Diogenes]].

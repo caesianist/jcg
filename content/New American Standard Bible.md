@@ -1,0 +1,1 @@
+Revision of the [[American Standard Version]] of 1901, published by the Lockman Foundation. Widely considered the most technically accurate translation at that time, the Gospel of John was released in 1960, the New Testament in 1963, and the complete Bible in 1971.

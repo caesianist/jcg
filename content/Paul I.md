@@ -1,0 +1,1 @@
+Bishop of Rome and leader of the emerging Papal States from 29 May 757 to his death on 28 June 767. Succeeded by [[Stephen III]].

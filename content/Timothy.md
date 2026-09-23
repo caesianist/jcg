@@ -1,0 +1,1 @@
+An early Christian evangelist and the first Bishop of [[Ephesus]] whom [[Acts of Timothy]] relates to, he died around AD 97.

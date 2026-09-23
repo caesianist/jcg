@@ -1,0 +1,1 @@
+One of 4 rivers mentioned in [[Genesis 2]], also mentioned in [[Daniel 10]]. Considered a river of Mesopotamia.

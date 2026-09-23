@@ -1,0 +1,1 @@
+Patriarch of Constantinople (490–496). [[Theophanes the Confessor]] however called him Euthymius. Succeeded by [[Macedonius II]].

@@ -1,0 +1,1 @@
+Said to be the place where all of Israel buries the five-sixths of the army of [[Gog]] and [[Magog]] that are struck down by God.

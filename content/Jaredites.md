@@ -1,0 +1,1 @@
+One of four groups (along with the [[Nephites]], [[Lamanites]], and [[Mulekites]]) said to have inhabited the ancient Americas. Descendants of [[Jared]].

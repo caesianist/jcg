@@ -1,0 +1,1 @@
+Bishop of Rome from 12 July 526 to his death on 22 September 530. Succeeded by [[Boniface II]].

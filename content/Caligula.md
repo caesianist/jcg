@@ -1,0 +1,1 @@
+The third Roman emperor, ruling from AD 37 until his assassination in AD 41. He was the son of the Roman general [[Germanicus]] and [[Agrippina the Elder]]. Succeeded by [[Claudius]].

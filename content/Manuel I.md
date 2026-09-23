@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from May 1217 to May/June 1222. Succeeded by [[Germanus II]].

@@ -1,0 +1,1 @@
+Christian from [[Thessalonica]] who accompanied the apostle [[Paul]] on his journey.

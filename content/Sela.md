@@ -1,0 +1,1 @@
+A city in [[Edom]], to the south of the Dead Sea. The name "Sela" means "rock" in Hebrew, likely referring to a terrain that is rocky. This city is often identified with the later city of Petra.

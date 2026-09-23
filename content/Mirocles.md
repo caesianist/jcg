@@ -1,0 +1,1 @@
+Bishop of Milan from before 313 to c. 316. Succeeded by [[Maternus]].

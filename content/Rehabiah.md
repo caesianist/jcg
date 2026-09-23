@@ -1,0 +1,1 @@
+Only son of [[Eliezer]], father of [[Jeshaiah]].

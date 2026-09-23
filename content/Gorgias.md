@@ -1,0 +1,1 @@
+Seleucid military commander serving under [[Antiochus Epiphanes]].

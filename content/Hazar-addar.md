@@ -1,0 +1,1 @@
+Southern edge of the territory belonging to the Tribe of [[Judah]]. 

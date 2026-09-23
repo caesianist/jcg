@@ -1,0 +1,1 @@
+City between the border of Damascus and the border of [[Hauran]].

@@ -1,0 +1,1 @@
+Unidentified city that was under [[Canaan]], was the site of and near the site of several conflicts between the [[Israelites]] seeking to enter the Promised Land and the [[Amalekites]] and the [[Canaanites]] who dwelt at that time.

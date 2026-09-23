@@ -1,0 +1,1 @@
+Region of southern Anatolia in West Asia, extending inland from the northeastern coasts of the Mediterranean Sea. Cilicia borders [[Pamphylia]] to the west, Lycaonia and [[Cappadocia]] to the north, Commagene to the north-east, Syria to the east and the Mediterranean Sea to the south. 

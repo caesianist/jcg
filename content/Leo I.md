@@ -1,0 +1,1 @@
+Bishop of Rome from 29 September 440 until his death on 10 November 461. Succeeded by [[Hilarius]].

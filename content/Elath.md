@@ -1,0 +1,1 @@
+City in [[Edom]], near [[Ezion-geber]], a port situated on the northern tip of the [[Gulf of Aqaba]].

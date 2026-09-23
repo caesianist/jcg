@@ -1,0 +1,1 @@
+One of the divine powers presiding over the souls destined for salvation in Sethian Gnosticism.

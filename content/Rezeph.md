@@ -1,0 +1,1 @@
+City located in the Roman province of Euphratensis, in modern-day Syria. 

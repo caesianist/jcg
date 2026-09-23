@@ -1,0 +1,1 @@
+King of Assyria during the time of [[Menahem]].

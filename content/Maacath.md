@@ -1,0 +1,1 @@
+Land located in the northern part of the Transjordan, near the territory of [[Bashan]].

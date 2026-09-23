@@ -1,0 +1,1 @@
+Christian in [[Troas]], to whom [[Paul]] entrusted his cloak, books, and parchments during his final imprisonment.

@@ -1,0 +1,1 @@
+Located in the [[Jezreel]] Valley in modern-day Israel. 

@@ -1,0 +1,1 @@
+Were two neighboring towns in ancient Israel, situated on the [[Gibeon]]–[[Aijalon]] road. 

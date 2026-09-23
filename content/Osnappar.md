@@ -1,0 +1,1 @@
+Also known as [[Ashurbanipal]], a king of Assyria from 668 to 627 BC.

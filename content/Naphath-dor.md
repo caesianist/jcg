@@ -1,0 +1,1 @@
+Region associated with the ancient city of [[Dor]], located on the Mediterranean coast of Israel.

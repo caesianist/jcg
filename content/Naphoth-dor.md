@@ -1,0 +1,1 @@
+Region surrounding the ancient city of [[Dor]], which was situated on the coast of the Mediterranean Sea, south of Mount [[Carmel]]. 

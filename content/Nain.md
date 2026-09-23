@@ -1,0 +1,1 @@
+Small village in Galilee, located approximately four miles from Mount [[Tabor]] and twenty-five miles southwest of [[Capernaum]].

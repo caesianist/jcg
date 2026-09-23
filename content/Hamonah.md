@@ -1,0 +1,1 @@
+The name Hamonah is derived from the Hebrew word "hamon," meaning "multitude" or "horde," one of the cities prophesized to attack [[Gog]] and [[Magog]].

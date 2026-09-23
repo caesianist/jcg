@@ -1,0 +1,1 @@
+One of the cities in [[Gilead]] that was under siege by Gentile forces.

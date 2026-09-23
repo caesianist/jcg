@@ -1,0 +1,1 @@
+The hometown of the apostles [[Peter]], [[Andrew]], and [[Philip]].

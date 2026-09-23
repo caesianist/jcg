@@ -1,0 +1,1 @@
+Stretches roughly from the [[Aijalon]] Valley in the north to the [[Negev]] in the south.

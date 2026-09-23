@@ -1,0 +1,1 @@
+Born in [[Genesis 29]]. First son of [[Jacob]] and [[Leah]]. Briefly described as having had sexual activity with [[Bilhah]], his stepmother's maid and father's concubine in [[Genesis 35]]. Father of [[Hanoch]], [[Pallu]], [[Hezron]], and [[Carmi]].

@@ -1,0 +1,1 @@
+The name traditionally given to the author of the Book of [[Revelation]]. [[Revelation 1]]:9 states that he was on [[Patmos]], an Aegean island off the coast of Roman Asia, where according to some biblical historians, he was exiled as a result of anti-Christian persecution.

@@ -1,0 +1,1 @@
+Archbishop of Constantinople from 434 until his death on July 24th 446. Succeeded by [[Flavian]].

@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1921 to 1923. Succeeded by [[Gregory VII (Constantinople)]].

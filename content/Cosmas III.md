@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 28 February 1714 to 23 March 1716. Succeeded by [[Jeremias III]].

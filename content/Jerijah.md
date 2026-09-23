@@ -1,0 +1,1 @@
+Chief of the [[Hebronites]] during the reign of king [[David]].

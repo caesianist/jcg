@@ -1,0 +1,1 @@
+An Aramaic name for [[Judas Thomas]].

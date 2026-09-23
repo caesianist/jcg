@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople since his election on 22 October 1991.

@@ -1,0 +1,1 @@
+Byzantine emperor from 1261 until his death in 1282, and previously as the co-emperor of the Empire of Nicaea from 1259 to 1261. 

@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 13 April 1055 until his death in 1057. Succeeded by [[Stephen IX]]. 

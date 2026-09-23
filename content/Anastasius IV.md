@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 8 July 1153 to his death in 1154. Succeeded by [[Adrian IV]].

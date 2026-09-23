@@ -1,0 +1,1 @@
+In Ontario, New York, [[Joseph Smith Jr.]]'s father moved here in 1815.

@@ -1,0 +1,1 @@
+City in the Central District of Israel, about 35 kilometres (22 mi) southeast of Tel Aviv and 30 kilometres (19 mi) west of Jerusalem.

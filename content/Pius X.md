@@ -1,0 +1,1 @@
+Head of the Catholic Church from 4 August 1903 until his death in August 1914. Succeeded by [[Benedict XV]].

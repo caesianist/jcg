@@ -1,0 +1,1 @@
+Bishop of Byzantium from 144 to 148 AD. Succeeded by [[Euzois]].

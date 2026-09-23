@@ -1,0 +1,1 @@
+Either descendants or inhabitants of [[Izrah]].

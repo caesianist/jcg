@@ -1,0 +1,1 @@
+The name "Beth-biri" translates to "house of my creation" or "house of my making," one of the areas allotted to the tribe of [[Simeon]].

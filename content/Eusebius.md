@@ -1,0 +1,1 @@
+Bishop of Rome from 18 April 309 until his exile on 17 August 310. Succeeded by [[Miltiades]].

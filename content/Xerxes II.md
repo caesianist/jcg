@@ -1,0 +1,1 @@
+Briefly the sixth ruler of the Achaemenid Empire, as the son and successor of [[Artaxerxes I]], succeeded by [[Sogdianus]].

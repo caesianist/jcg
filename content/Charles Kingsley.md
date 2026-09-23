@@ -1,0 +1,1 @@
+Born June 12th, 1819, died January 23rd, 1875. English clergyman, social reformer, historian, novelist and poet. 

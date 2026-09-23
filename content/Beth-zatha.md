@@ -1,0 +1,1 @@
+An account of [[Jesus]] healing a paralyzed man at a pool of water in Jerusalem is described here, described as being near the Sheep Gate and surrounded by five covered colonnades or porticoes. 

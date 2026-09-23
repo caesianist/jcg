@@ -1,0 +1,1 @@
+One of two princes of the [[Midianites]] who was defeated by the [[Israelites]] under leadership of [[Gideon]].

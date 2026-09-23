@@ -1,0 +1,1 @@
+Citizen of [[Gibeon]] who made repairs to walls in Jerusalem.

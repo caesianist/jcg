@@ -1,0 +1,1 @@
+Apostle of [[Jesus]]. Commonly known as "doubting Thomas" because he initially doubted the resurrection of Jesus when he was told of it.

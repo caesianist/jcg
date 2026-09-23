@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from April 1146 until 26 February 1147. Succeeded by [[Nicholas IV (Constantinople)]].

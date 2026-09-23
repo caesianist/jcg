@@ -1,0 +1,1 @@
+[[Xanthippe]]’s younger sister, a wealthy woman in Spain, converted to Christianity through [[Paul the Apostle]]. Baptized by [[Andrew the Apostle]].

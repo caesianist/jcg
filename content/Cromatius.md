@@ -1,0 +1,1 @@
+Died around 407 AD. Bishop of Aquileia.

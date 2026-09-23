@@ -1,0 +1,1 @@
+The second luminary to come from God in some Gnostic literature.

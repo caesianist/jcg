@@ -1,0 +1,1 @@
+Located in the highlands north of Jerusalem, it belonged to the Tribe of [[Benjamin]],  was the setting of the biblical Battle of Michmash, recounted in [[1 Samuel 14]]. 

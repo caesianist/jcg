@@ -1,0 +1,1 @@
+Possibly identical to [[Ben-Hadad II]], son of [[Rehob]].

@@ -1,0 +1,1 @@
+Location in North Babylonia mentioned where [[Ezra]] sent for [[Levites]] and temple ministers to aid in the restoration of Jerusalem’s temple.

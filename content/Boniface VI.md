@@ -1,0 +1,1 @@
+Bishop of Rome in April of 896. Succeeded by [[Stephen VI]].

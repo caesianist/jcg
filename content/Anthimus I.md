@@ -1,0 +1,1 @@
+Patriarch of Constantinople from 535 to 536. Succeeded by [[Menas]].

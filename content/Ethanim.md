@@ -1,0 +1,1 @@
+Seventh month of the Hebrew calendar.

@@ -1,0 +1,1 @@
+Official of [[Jehoshaphat]] sent to teach members of [[Judah]].

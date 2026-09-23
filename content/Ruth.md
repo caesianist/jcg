@@ -1,0 +1,1 @@
+Great-grandmother of [[David]], wife of [[Mahlon]].

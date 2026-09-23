@@ -1,0 +1,1 @@
+Bishop of Rome from 21 November 235 until his death on 3 January 236. Succeeded by [[Fabian]].

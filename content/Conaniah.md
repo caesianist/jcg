@@ -1,0 +1,1 @@
+Chief officer of [[Levites]] under king [[Hezekiah]].

@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1476 to his death in 1482. Succeeded by [[Symeon I]].

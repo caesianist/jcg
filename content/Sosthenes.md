@@ -1,0 +1,1 @@
+Chief ruler of the synagogue at [[Corinth]] who was seized and beaten by a mob in the presence of [[Gallio]].

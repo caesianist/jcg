@@ -1,0 +1,1 @@
+Creator of the throat in [[Apocryphon of John]].

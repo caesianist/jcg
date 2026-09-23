@@ -1,0 +1,1 @@
+A well or cistern, a place where water was drawn.

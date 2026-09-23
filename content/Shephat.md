@@ -1,0 +1,1 @@
+Area near [[Hazor]], [[Kedesh]], and [[Thisbe]].

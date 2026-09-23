@@ -1,0 +1,1 @@
+Scottish publisher who was self-taught and proficient in various Semitic languages. He published several works, the best known being a Bible translation, commonly referred to as [[Young's Literal Translation]]. 

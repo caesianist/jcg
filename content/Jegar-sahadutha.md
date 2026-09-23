@@ -1,0 +1,1 @@
+A heap of stones (a cairn) on Mount [[Gilead]], renamed to [[Galeed]] by [[Jacob]].

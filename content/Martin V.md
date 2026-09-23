@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 11 November 1417 to his death in February 1431. Succeeded by [[Eugene IV]].

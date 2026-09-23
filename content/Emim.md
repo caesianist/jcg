@@ -1,0 +1,1 @@
+According to [[Deuteronomy 2]], a race of giants who in [[Genesis 14]] were subdued by [[Chedorlaomer]].

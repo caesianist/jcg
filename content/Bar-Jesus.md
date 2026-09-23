@@ -1,0 +1,1 @@
+False prophet and a sorcerer who opposes [[Paul]] and [[Barnabas]].

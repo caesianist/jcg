@@ -1,0 +1,1 @@
+Identified by [[Jerome of Stridon]] as the same person also called "[[James the Just]]" and "[[James]], brother of [[Jesus]]" in the Bible, thought of by Jerome and others as really a cousin of Jesus. Also claimed to be the same James, son of [[Alphaeus]].

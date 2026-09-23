@@ -1,0 +1,1 @@
+City that [[Asher]] failed to take from the [[Canaanites]].

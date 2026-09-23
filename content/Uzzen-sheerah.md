@@ -1,0 +1,1 @@
+Named for its builder, [[Sheerah]]. While it is believed to have been located close to [[Beth-horon]], the exact location has not been identified.

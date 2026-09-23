@@ -1,0 +1,1 @@
+Bishop of Rome and nominal ruler of the Papal States from 25 December 1003 to July 1009. Succeeded by [[Sergius IV]].

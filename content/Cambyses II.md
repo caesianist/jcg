@@ -1,0 +1,1 @@
+Second king of the Achaemenid Empire from 530 to 522 BCE, succeeded by [[Bardiya]].

@@ -1,0 +1,1 @@
+Mentioned in [[Genesis 4]]. Wife of [[Lamech]] and the mother of [[Tubal-cain]] and [[Naamah]].

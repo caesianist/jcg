@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 12 March 1088 to his death on 29 July 1099. He is best known for convening the [[Council of Clermont]], which ignited the [[First Crusade]]. Succeeded by [[Paschal II]].

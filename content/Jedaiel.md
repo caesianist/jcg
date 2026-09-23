@@ -1,0 +1,1 @@
+Son of [[Shimri]], one of [[David]]'s Mighty Warriors.

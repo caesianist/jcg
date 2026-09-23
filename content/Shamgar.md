@@ -1,0 +1,1 @@
+Son of [[Anath]]. A man who slaughtered 600 [[Philistines]] in [[Judges 3]].

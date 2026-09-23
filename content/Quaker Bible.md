@@ -1,0 +1,1 @@
+[[Anthony Purver]], a Quaker (The Religious Society of Friends), worked for 30 years to produce ‘a new and literal translation of all the books of the Old and New Testament, with notes critical and explanatory.’ 

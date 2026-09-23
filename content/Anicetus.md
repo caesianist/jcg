@@ -1,0 +1,1 @@
+Bishop of Rome from c. 157 (though others claim earlier) to his death in April 168. Anicetus actively opposed Gnosticism and Marcionism. Succeeded by [[Soter]].

@@ -1,0 +1,1 @@
+Bishop of Rome from 4 January 275 to his death on 7 December 283. Succeeded by [[Caius]].

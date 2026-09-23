@@ -1,0 +1,1 @@
+A gate, derived from the Hebrew root meaning "to cast down" or "to throw down." 

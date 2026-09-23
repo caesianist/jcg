@@ -1,0 +1,1 @@
+Bishop of Rome from 913 to his death in 914. Succeeded by [[John X]].

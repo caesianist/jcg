@@ -1,0 +1,1 @@
+Eastern Roman emperor from 474 to 475 and again from 476 to 491. His reign was plagued by domestic revolts and religious dissension, but was more successful on the foreign front.

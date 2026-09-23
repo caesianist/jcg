@@ -1,0 +1,1 @@
+Name prophesized to be given in [[Isaiah 7]], Christians recognize this verse as pointing to the miraculous birth of [[Jesus]] Christ, the promised Messiah, however can also likely refer to [[Maher-shalal-hash-baz]].

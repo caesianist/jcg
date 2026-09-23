@@ -1,0 +1,1 @@
+An ancient kingdom that flourished in northwestern Iran, primarily south and southeast of Lake Urmia, during the early first millennium BCE, roughly from the 10th to the 7th century BCE. It developed into a prominent regional power along the northeastern frontier of the Neo-Assyrian Empire.

@@ -1,0 +1,1 @@
+Bishop of Rome and leader of the Papal States from 7 August 768 to his death on 24 January 772. Succeeded by [[Adrian I]].

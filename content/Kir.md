@@ -1,0 +1,1 @@
+Place to which [[Tiglath-pileser]] of Assyria carried the Aramean captives after he had taken the city of Damascus and conquered the kingdom of [[Aram-Damascus]], situated east of the Euprates or the [[Tigris]] river.

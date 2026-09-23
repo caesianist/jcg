@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople for a few days in 1707. Succeeded by [[Cyprianus]].

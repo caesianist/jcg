@@ -1,0 +1,1 @@
+Head of the Catholic Church and sovereign of Vatican City from 2 March 1939 until his death on 9 October 1958. Succeeded by [[John XXIII]].

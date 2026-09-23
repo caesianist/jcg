@@ -1,0 +1,1 @@
+A ridge containing the pass between the south of the Dead Sea and [[Zin]], by which there is an ascent to the level of the [[Negev]] desert. 

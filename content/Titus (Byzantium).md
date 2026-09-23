@@ -1,0 +1,1 @@
+Bishop of Byzantium from 242 to 272. Succeeded by [[Dometius]].

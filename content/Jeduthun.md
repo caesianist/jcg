@@ -1,0 +1,1 @@
+Father of [[Gedaliah]], member of the [[Levites]], and a musician.

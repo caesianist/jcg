@@ -1,0 +1,1 @@
+Another name for [[Debir]]. Located in the southern part of [[Judah]].

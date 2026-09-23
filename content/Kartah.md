@@ -1,0 +1,1 @@
+Territory allotted to the [[Levites]].

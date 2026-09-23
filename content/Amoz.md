@@ -1,0 +1,1 @@
+The word means "strong", was the father of the prophet [[Isaiah]].

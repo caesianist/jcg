@@ -1,0 +1,1 @@
+Activator of the right ribs in [[Apocryphon of John]].

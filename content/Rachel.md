@@ -1,0 +1,1 @@
+Daughter of [[Laban]], sibling of [[Leah]], one wife of [[Jacob]]. Mother of [[Joseph]] and [[Benjamin]].

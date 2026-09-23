@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 7 April 1655 to his death, in May 1667. Succeeded by [[Clement IX]].

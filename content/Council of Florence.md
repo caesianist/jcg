@@ -1,0 +1,1 @@
+Seventeenth ecumenical council recognized by the Catholic Church, held between 1431 and 1445. It was convoked by Pope [[Martin V]]. After this was the [[Fifth Council of the Lateran]].

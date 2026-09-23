@@ -1,0 +1,1 @@
+A name applied in the Hebrew Bible to three rulers of Ancient Persia and to a Babylonian official (or Median king) first appearing. It is derived from either [[Xerxes I]], [[Xerxes II]],  or [[Artaxerxes I]], [[Artaxerxes II]], [[Artaxerxes III]], [[Artaxerxes IV]].

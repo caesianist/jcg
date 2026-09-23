@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from November 1948, until his death in July 1972. Succeeded by [[Demetrios I]].

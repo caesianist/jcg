@@ -1,0 +1,1 @@
+Location named in [[Testament of Reuben]] said to be near [[Ephrath]] which is a biblical name for Bethlehem near Jerusalem.

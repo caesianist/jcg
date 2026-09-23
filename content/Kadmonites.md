@@ -1,0 +1,1 @@
+Tribe within [[Canaan]], mostly unidentified, but some say it inhabited the northeastern part of Palestine.

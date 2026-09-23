@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 2 February 933 to his death in 956. Succeeded by [[Polyeuctus]].

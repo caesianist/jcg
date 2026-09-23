@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 2 April 1285 to his death on 3 April 1287. Succeeded by [[Nicholas IV]].

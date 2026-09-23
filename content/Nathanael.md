@@ -1,0 +1,1 @@
+A disciple of Jesus, likely refers to [[Bartholomew the Apostle]].

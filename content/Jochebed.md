@@ -1,0 +1,1 @@
+Wife of [[Amram]], daughter of [[Levi]], mother of [[Miriam]], [[Aaron]], and [[Moses]].

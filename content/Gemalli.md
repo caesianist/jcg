@@ -1,0 +1,1 @@
+Father of [[Ammiel]], a scout sent to [[Canaan]] prior to the crossing of the Jordan River according to [[Numbers 13]].

@@ -1,0 +1,1 @@
+Mentioned first in [[Genesis 4]] and [[Genesis 5]]. Son of [[Jared]] and father of [[Methuselah]] and [[Irad]]. Lived 365 years before he was taken by God, in which the text reads that Enoch "walked with God: and he was no more; for God took him".

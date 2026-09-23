@@ -1,0 +1,1 @@
+Bishop of Rome from 19 May 715 to his death on 11 February 731. Succeeded by [[Gregory III]].

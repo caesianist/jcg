@@ -1,0 +1,1 @@
+ City located on the eastern frontier of [[Bashan]].

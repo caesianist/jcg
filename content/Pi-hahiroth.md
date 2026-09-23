@@ -1,0 +1,1 @@
+Place where the [[Israelites]] encamped between [[Migdol]] and the sea.

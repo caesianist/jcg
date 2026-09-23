@@ -1,0 +1,1 @@
+Situated near Jerusalem in the tribe of [[Benjamin]].

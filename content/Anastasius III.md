@@ -1,0 +1,1 @@
+Bishop of Rome and ruler of the Papal States from April 911 to his death in June 913. Succeeded by [[Lando]].

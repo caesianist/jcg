@@ -1,0 +1,1 @@
+One of the locations which the [[Israelites]] passed through.

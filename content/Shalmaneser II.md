@@ -1,0 +1,1 @@
+King of Assyria in 1030–1019 BC.

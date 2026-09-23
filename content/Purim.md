@@ -1,0 +1,1 @@
+Jewish holiday that commemorates the saving of the Jewish people by Queen [[Esther]] from annihilation at the hands of an official of the Achaemenid Empire named [[Haman]].

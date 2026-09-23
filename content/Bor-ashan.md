@@ -1,0 +1,1 @@
+Situated within the territory of [[Judah]].

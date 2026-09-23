@@ -1,0 +1,1 @@
+Roman emperor from 193 to 211. Succeeded by [[Caracalla]] and [[Geta]].

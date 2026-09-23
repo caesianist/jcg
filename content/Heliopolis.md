@@ -1,0 +1,1 @@
+A major city of ancient Egypt. It was the capital of the Heliopolite or 13th Nome (province or district) of Lower Egypt and a major religious centre. Its site is within the boundaries of Ain Shams and El Matareya districts (kism) in northeastern Cairo.

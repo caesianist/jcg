@@ -1,0 +1,1 @@
+Settlement in the territory of [[Judah]].

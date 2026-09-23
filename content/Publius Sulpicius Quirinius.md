@@ -1,0 +1,1 @@
+Born around 51 BC, died about 21 AD. Roman aristocrat. After the banishment of the ethnarch [[Herod Archelaus]] from the tetrarchy of Judea in AD 6, Quirinius was appointed legate governor of Syria, to which the province of Judaea had been added for census purposes.

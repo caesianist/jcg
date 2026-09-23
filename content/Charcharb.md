@@ -1,0 +1,1 @@
+Activator of the right thigh in [[Apocryphon of John]].

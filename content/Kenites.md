@@ -1,0 +1,1 @@
+Tribe of [[Canaan]] which settled in the towns and cities in the northeastern [[Negev]] in an area near [[Arad]].

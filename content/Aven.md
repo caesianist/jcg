@@ -1,0 +1,1 @@
+The word itself is derived from the Hebrew word "אָוֶן" (aven), which means "vanity," "iniquity," or "trouble." Used to denote places or practices that are contrary to the worship of the one true God symbolically.

@@ -1,0 +1,1 @@
+Also known as [[Tishrei]]. The first month of the civil year (which starts on 1 Tishre) and the seventh month of the ecclesiastical year (which starts on 1 [[Nisan]]) in the Hebrew calendar. The name of the month is Babylonian. It is a month of 30 days. Tishre usually occurs in September–October on the Gregorian calendar.

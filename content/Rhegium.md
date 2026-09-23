@@ -1,0 +1,1 @@
+Located near the center of the Mediterranean.

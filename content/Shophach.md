@@ -1,0 +1,1 @@
+Commander for the army of [[Hadadezer]].

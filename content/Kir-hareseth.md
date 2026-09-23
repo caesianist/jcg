@@ -1,0 +1,1 @@
+Fortified city in [[Moab]].

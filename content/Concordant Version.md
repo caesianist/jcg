@@ -1,0 +1,1 @@
+English translation of the Bible compiled by the Concordant Publishing Concern (CPC), which was founded by [[Adolph Ernst Knoch]] in 1909. Knoch designed the Concordant Version to put English readers lacking formal knowledge of Koine Greek in possession of all the vital facts of the most ancient codices.

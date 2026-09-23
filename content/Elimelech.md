@@ -1,0 +1,1 @@
+Husband to [[Naomi]], father of [[Mahlon]] and [[Chilion]].

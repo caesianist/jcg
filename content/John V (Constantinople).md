@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 669 to 675. Succeeded by [[Constantine I (Constantinople)]],

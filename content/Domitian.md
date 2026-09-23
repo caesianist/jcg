@@ -1,0 +1,1 @@
+Roman emperor from 81 to 96. The son of [[Vespasian]] and the younger brother of [[Titus (Emperor)]], succeeded by [[Nerva]].

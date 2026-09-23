@@ -1,0 +1,1 @@
+The earliest English translation of the first six books of the Old Testament: Genesis, Exodus, Leviticus, Numbers, Deuteronomy, and Joshua.

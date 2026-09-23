@@ -1,0 +1,1 @@
+The second king of the Neo-Babylonian Empire, ruling from the death of his father [[Nabopolassar]] in 605 BC to his own death in 562 BC where he was succeeded by [[Evil-merodach]].

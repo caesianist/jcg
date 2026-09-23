@@ -1,0 +1,1 @@
+Bishop of Rome for twenty days in December 897. Succeeded by [[John IX]].

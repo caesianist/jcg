@@ -1,0 +1,1 @@
+Roman emperor from AD 138 to 161. Succeeded by [[Marcus Aurelius]] and [[Lucius Verus]]. 

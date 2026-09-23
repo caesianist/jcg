@@ -1,0 +1,1 @@
+Fourth king of the Achaemenid Empire, reigning from 486 BC until his assassination in 465 BC, succeeded by [[Artaxerxes I]].

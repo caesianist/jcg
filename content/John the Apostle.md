@@ -1,0 +1,1 @@
+Apostle of [[Jesus]], generally believed to be the youngest, he was the son of [[Zebedee]] and [[Salome]], and brother of [[James the Great]].

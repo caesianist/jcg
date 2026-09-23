@@ -1,0 +1,1 @@
+Holy Roman Emperor from 1046 until his death in 1056. 

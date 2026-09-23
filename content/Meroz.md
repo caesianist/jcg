@@ -1,0 +1,1 @@
+City within the plains of Galilee north of Mount [[Tabor]] in Israel which was cursed by the angel of God.

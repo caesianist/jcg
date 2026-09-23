@@ -1,0 +1,1 @@
+Roman emperor who reigned from April 217 to June 218. Succeeded by [[Elagabalus]].

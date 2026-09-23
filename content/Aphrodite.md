@@ -1,0 +1,1 @@
+Not to be confused with the Greek goddess. In [[On the Origin of the World]] there are three [[Adam]]'s, the first Adam is the spiritual Adam, appearing on the first day. The psychic/soul-endowed Adam is the second, appearing on the sixth day, which is called Aphrodite. The third Adam, the earthly Adam, appearing on the eighth day.

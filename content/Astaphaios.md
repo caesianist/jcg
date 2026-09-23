@@ -1,0 +1,1 @@
+Third power in [[Apocryphon of John]], has the face of a hyena.

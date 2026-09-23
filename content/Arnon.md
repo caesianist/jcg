@@ -1,0 +1,1 @@
+A river emptying into the Dead Sea from the east, a boundary between the [[Moabites]] and [[Amorites]].

@@ -1,0 +1,1 @@
+Envoy of the church of the [[Philippians]] sent to assist [[Paul]].

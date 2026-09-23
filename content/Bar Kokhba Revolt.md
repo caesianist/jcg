@@ -1,0 +1,1 @@
+Last and most devastating of three major Jewish rebellions against the Roman Empire. Led by [[Simon bar Kokhba]], the rebels established an independent Jewish state that lasted over three years before being crushed by the Romans, leading to the near-total depopulation of Judea proper, along with mass killings, enslavement, and displacement.

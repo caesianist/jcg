@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 22 April 1073 to his death in 1085. Succeeded by [[Victor III]].

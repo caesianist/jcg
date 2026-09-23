@@ -1,0 +1,1 @@
+Area of wilderness near [[Rehob]] and [[Lebo-hamath]].

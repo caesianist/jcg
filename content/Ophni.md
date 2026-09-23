@@ -1,0 +1,1 @@
+City allotted to the tribe of [[Benjamin]].

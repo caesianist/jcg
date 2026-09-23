@@ -1,0 +1,1 @@
+A site immediately outside Roman Jerusalem's walls where, according to Christianity's four canonical gospels, [[Jesus]] was crucified.

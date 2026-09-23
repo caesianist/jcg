@@ -1,0 +1,1 @@
+Birth name of [[Sarah]] before God renames her in [[Genesis 17]].

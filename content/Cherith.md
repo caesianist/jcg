@@ -1,0 +1,1 @@
+Valley to the east of the Jordan.

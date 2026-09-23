@@ -1,0 +1,1 @@
+Located in [[Gilead]], the burial place of [[Jair]].

@@ -1,0 +1,1 @@
+Roman emperor from AD 306 to 337 and the first Roman emperor to convert to Christianity.

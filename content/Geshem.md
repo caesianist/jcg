@@ -1,0 +1,1 @@
+An ally of [[Sanballat]] and [[Tobiah]] and adversary of [[Nehemiah]].

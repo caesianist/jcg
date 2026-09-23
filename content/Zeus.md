@@ -1,0 +1,1 @@
+Supreme deity of the Greek pantheon. He is a sky and thunder god in ancient Greek religion and mythology, who rules as king of the gods on Mount Olympus.

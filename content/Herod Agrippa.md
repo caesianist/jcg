@@ -1,0 +1,1 @@
+A Roman citizen who was a friend of Roman emperors [[Caligula]] and [[Claudius]], and the last client king of Judea from around 41 to 44 AD. He was father of [[Herod Agrippa II]]. In [[Acts 12]], Herod martyrs [[James the Great]]. 

@@ -1,0 +1,1 @@
+Head of the Catholic Church and leader of the Papal States from 11 March 1431 to his death in February 1447. Succeeded by [[Nicholas V]]. 

@@ -1,0 +1,1 @@
+Those of the tribe of [[Manasseh]], the clan comes from [[Abiezer]].

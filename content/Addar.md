@@ -1,0 +1,1 @@
+A landmark in the delineation of the southern boundary of the tribe of [[Judah]].

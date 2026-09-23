@@ -1,0 +1,1 @@
+Daughters of this person/tribe are sacrificed to idols.

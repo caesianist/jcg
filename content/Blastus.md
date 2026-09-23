@@ -1,0 +1,1 @@
+Chamberlain of [[Herod Agrippa]], a mediator for the [[Sidonians]] and [[Tyrians]].

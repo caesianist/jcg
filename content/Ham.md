@@ -1,0 +1,1 @@
+Mentioned in [[Genesis 5]], [[Genesis 6]], [[Genesis 7]], [[Genesis 8]], and [[Genesis 9]]. Son of [[Noah]], siblings of [[Shem]] and [[Japheth]], father of [[Cush]], [[Put]], and [[Canaan]]. Can also refer to an area.

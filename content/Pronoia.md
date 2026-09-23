@@ -1,0 +1,1 @@
+Divine feminine principle associated with the thought/foreknowledge of God.

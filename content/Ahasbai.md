@@ -1,0 +1,1 @@
+Father of [[Eliphelet]], of the tribe of [[Maacah]].

@@ -1,0 +1,1 @@
+Sixth power in [[Apocryphon of John]], has the face of an ape.

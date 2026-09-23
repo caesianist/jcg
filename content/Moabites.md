@@ -1,0 +1,1 @@
+Inhabitants of [[Moab]], considered the product of incest via [[Lot]] and one of his unnamed daughters.

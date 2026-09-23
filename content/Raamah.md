@@ -1,0 +1,1 @@
+Son of [[Cush]]. Father of [[Sheba]] and [[Dedan]].

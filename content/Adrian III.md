@@ -1,0 +1,1 @@
+Bishop of Rome from 17 May 884 to his death on 8 July 885. Succeeded by [[Stephen V]].

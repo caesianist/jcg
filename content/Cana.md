@@ -1,0 +1,1 @@
+The location is disputed, with the four primary locations being Kafr Kanna, Khirbet Qana and Reineh in Lower Galilee, and Qana in Upper Galilee in Lebanon. 

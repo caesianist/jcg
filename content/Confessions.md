@@ -1,0 +1,15 @@
+Autobiographical work by [[Augustine of Hippo]].
+
+[[Book 1 of Confessions]]
+[[Book 2 of Confessions]]
+[[Book 3 of Confessions]]
+[[Book 4 of Confessions]]
+[[Book 5 of Confessions]]
+[[Book 6 of Confessions]]
+[[Book 7 of Confessions]]
+[[Book 8 of Confessions]]
+[[Book 9 of Confessions]]
+[[Book 10 of Confessions]]
+[[Book 11 of Confessions]]
+[[Book 12 of Confessions]]
+[[Book 13 of Confessions]]

@@ -1,0 +1,1 @@
+In Sethian Gnosticism, the autogenes are an emanation or son of [[Barbelo]].

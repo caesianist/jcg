@@ -1,0 +1,1 @@
+Roman emperor from 235 to 238. Succeeded by [[Pupienus]] and [[Balbinus]].

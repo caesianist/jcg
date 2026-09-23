@@ -1,0 +1,8 @@
+CHAPTER XXVII
+How we are to take Christ’s Words when He bade forsake all Things; and wherein the Union with the Divine Will standeth.
+
+ 
+
+Now, according to what hath been said, ye must observe that when we say, as Christ also saith, that we ought to resign and forsake all things, this is not to be taken in the sense that a man is neither to do nor to purpose anything; for a man must always have something to do and to order so long as he liveth. But we are to understand by it that the union with God standeth not in any man’s powers, in his working or abstaining, perceiving or knowing, nor in that of all the creatures taken together.
+
+Now what is this union? It is that we should be of a truth purely, simply, and wholly at one with the One Eternal Will of God, or altogether without will, so that the created will should flow out into the Eternal Will, and be swallowed up and lost therein, so that the Eternal Will alone should do and leave undone in us. Now mark what may help or further us towards this end. Behold, neither exercises, nor words, nor works, nor any creature nor creature’s work can do this. In this wise therefore must we renounce and forsake all things, that we must not imagine or suppose that any words, works, or exercises, any skill or cunning or any created thing can help or serve us thereto. Therefore we must suffer these things to be what they are, and enter into the union with God. Yet outward things must be, and we must do and refrain so far as is necessary, especially we must sleep and wake, walk and stand still, speak and be silent and much more of the like. These must go on so long as we live.

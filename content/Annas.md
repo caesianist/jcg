@@ -1,0 +1,1 @@
+High Priest of Judaea from 6 AD to 15 AD. He was appointed by the Roman legate [[Quirinius]] just after the Romans had deposed [[Archelaus]], Ethnarch of Judaea.

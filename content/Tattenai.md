@@ -1,0 +1,1 @@
+Governor of [[Shethar-bozenai]].

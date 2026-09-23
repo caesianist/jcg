@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople for eight days in June 1652 and again for fourteen days in March 1654. Succeeded by [[Athanasius III]] and [[Paisius I]].

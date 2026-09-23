@@ -1,0 +1,1 @@
+Father of [[Jeribai]] and [[Joshaviah]].

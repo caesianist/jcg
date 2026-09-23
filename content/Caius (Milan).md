@@ -1,0 +1,1 @@
+Bishop of Milan in early 3rd-century succeeded by [[Castritian]].

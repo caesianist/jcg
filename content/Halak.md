@@ -1,0 +1,1 @@
+Situated in the region that ascends toward [[Seir]].

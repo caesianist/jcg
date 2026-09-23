@@ -1,0 +1,1 @@
+One of the cities whose inhabitants were relocated to Samaria after the Assyrians conquered the Northern Kingdom of Israel under [[Shalmaneser]].

@@ -1,0 +1,1 @@
+Second son of [[Zilpah]] and eighth son of [[Jacob]]. Had 4 sons named [[Imnah]], [[Ishvah]], [[Ishvi]], [[Beriah]], and 1 daughter named [[Serah]] who were born in [[Canaan]] before migrating to Egypt. 

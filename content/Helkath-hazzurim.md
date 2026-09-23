@@ -1,0 +1,1 @@
+"Helkath" means "field" and "hazzurim" is often interpreted as "of the sharp blades" or "of the strong men."  located near the [[Pool of Gibeon]].

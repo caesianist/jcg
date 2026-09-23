@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 25 December 1559 to his death, in December 1565. He presided over the final session of the [[Council of Trent]]. Succeeded by [[Pius V]]. 

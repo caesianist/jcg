@@ -1,0 +1,1 @@
+Bishop of Rome from 3 or 5 December 741 until his death on 15 March 752. Succeeded by [[Stephen II]].

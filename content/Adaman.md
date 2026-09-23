@@ -1,0 +1,1 @@
+Also known as [[Adamas]]. A heavenly/celestial counterpart or archetype of humanity.

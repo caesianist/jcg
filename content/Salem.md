@@ -1,0 +1,1 @@
+Area associated with Jerusalem, though disputed, ruled by [[Melchizedek]].

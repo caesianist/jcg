@@ -1,0 +1,1 @@
+Head of the Catholic Church from 6 February 1922 until his death in February 1939. Succeeded by [[Pius XII]]. 

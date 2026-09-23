@@ -1,0 +1,1 @@
+Son of [[Jupiter]]. In classical mythology, Hercules is famous for his strength and for his numerous far-ranging adventures.

@@ -1,0 +1,1 @@
+ Ecumenical Patriarch of Constantinople from 11 March 843 until his death on 14 June 847. He is best known for restoring the veneration of icons in the Byzantine Church in 843. Succeeded by [[Ignatius]].

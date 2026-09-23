@@ -1,0 +1,1 @@
+Father of [[Regem]], [[Jotham]], [[Geshan]], [[Pelet]], [[Ephah]], and [[Shaaph]].

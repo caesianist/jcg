@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 24 January 1059 until his death in 27 July 1061. Succeeded by [[Alexander II]].

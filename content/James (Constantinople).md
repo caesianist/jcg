@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople (1679–1682, 1685–1686, 1687–1688). Succeeded by [[Dionysius IV]] twice, and [[Callinicus II]].

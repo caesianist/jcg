@@ -1,0 +1,1 @@
+One of [[David]]'s warriors and armor-bearer for [[Joab]], from [[Beeroth]].

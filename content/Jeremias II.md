@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople three times between 1572 and 1595. Succeeded by [[Metrophanes III]] the first time, [[Pachomius II]] the second time, [[Matthew II]] the third time.

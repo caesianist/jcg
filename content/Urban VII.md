@@ -1,0 +1,1 @@
+Head of the Catholic Church, and leader of the Papal States from 15 to 27 September 1590, he also was one of the attendants of the [[Council of Trent]]. Succeeded by [[Gregory XIV]].

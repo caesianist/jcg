@@ -1,0 +1,1 @@
+Descendants or inhabitants of [[Tekoa]].

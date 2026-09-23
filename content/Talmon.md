@@ -1,0 +1,1 @@
+Member of the tribe of [[Levi]] who was a priest gatekeeper.

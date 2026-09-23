@@ -1,0 +1,1 @@
+Son of [[Elimelech]] and [[Naomi]], husband of [[Ruth]].

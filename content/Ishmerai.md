@@ -1,0 +1,1 @@
+Son of [[Elpaal]], may be the same person as [[Shemed]].

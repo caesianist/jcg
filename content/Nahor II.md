@@ -1,0 +1,1 @@
+Son of [[Terah]], wife of [[Milcah]], father of [[Bethuel]], [[Uz]], [[Buz]], [[Kemuel]], [[Chesed]], [[Hazo]], [[Pildash]], and [[Jidlaph]].

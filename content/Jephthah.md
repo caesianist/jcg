@@ -1,0 +1,1 @@
+A judge over Israel for 6 years who lived in [[Gilead]], the same name as his father.

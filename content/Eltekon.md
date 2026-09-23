@@ -1,0 +1,1 @@
+City in the hill country of [[Judah]].

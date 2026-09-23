@@ -1,0 +1,1 @@
+Successor to and son of [[Jehoiakim]] as a king of [[Judah]]. 

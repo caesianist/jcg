@@ -1,0 +1,1 @@
+Mother of the [[Pleiades]], presided over the multiplication of the flocks, fitting, since the meaning of her name is: "to increase in number."

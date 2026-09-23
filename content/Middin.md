@@ -1,0 +1,1 @@
+Area in the wilderness of [[Judah]], served as a buffer zone between the settled areas of Judah and the more desolate regions to the south.

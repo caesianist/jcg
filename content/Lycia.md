@@ -1,0 +1,1 @@
+Bordered the Mediterranean Sea in what is today the provinces of Antalya and Muğla in Turkey as well some inland parts of Burdur Province.

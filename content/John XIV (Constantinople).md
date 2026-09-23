@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1334 to 1347. He was an opponent of [[Gregory Palamas]]. Succeeded by [[Isidore I]].

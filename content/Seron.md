@@ -1,0 +1,1 @@
+Commander of Syrian troops in [[1 Maccabees 3]].

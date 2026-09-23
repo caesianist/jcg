@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 9 March 1144 to his death in 1145. Succeeded by [[Eugene III]].

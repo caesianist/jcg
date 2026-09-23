@@ -1,0 +1,1 @@
+A servant of the prophet [[Elisha]], Gehazi enjoyed a position of power but was ultimately corrupt, misusing his authority to cheat [[Naaman]] the Syrian, a general afflicted with leprosy. As punishment, Elisha cursed Gehazi, transferring Naaman's leprosy to him and his descendants.

@@ -1,0 +1,1 @@
+One of the families of scribes living in [[Jabez]].

@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1254 to 1260 then 1261 to 1264. Succeeded by [[Nikephoros II]] the first time and [[Germanus III]] the second time.

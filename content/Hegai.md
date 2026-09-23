@@ -1,0 +1,1 @@
+A eunuch placed in charge of [[Ahasuerus]]'s harem. 

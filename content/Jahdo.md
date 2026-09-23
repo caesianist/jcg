@@ -1,0 +1,1 @@
+Father of [[Jeshishai]], son of [[Buz]].

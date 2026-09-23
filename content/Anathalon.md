@@ -1,0 +1,1 @@
+Bishop of Milan and lived at the end 2nd-century or early 3rd-century. Succeeded by [[Caius (Milan)]].

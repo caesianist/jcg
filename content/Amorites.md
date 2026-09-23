@@ -1,0 +1,1 @@
+An ancient Northwest Semitic-speaking Bronze Age people who emerged from western Mesopotamia and were descendants of [[Canaan]].

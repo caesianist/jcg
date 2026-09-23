@@ -1,0 +1,1 @@
+ Roman African prelate of the Catholic Church who served as the Bishop of Rome in the late second century. The dates of his tenure are uncertain, but one source states he became pope in 189 and gives the year of his death as 199. Succeeded by [[Zephyrinus]].

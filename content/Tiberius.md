@@ -1,0 +1,1 @@
+Roman emperor from 14 until his death in March 37 AD. Succeeded by [[Caligula]].

@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 2 June 1275 to 26 December 1282. Succeeded by [[Joseph I]].

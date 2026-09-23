@@ -1,0 +1,1 @@
+Identified with the ancient city of Kutha, located in Mesopotamia, near the modern site of Tell Ibrahim in Iraq.

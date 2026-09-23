@@ -1,0 +1,1 @@
+Fourth power in [[Apocryphon of John]], face of snake with seven heads.

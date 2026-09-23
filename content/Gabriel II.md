@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople for one week in 1657. Succeeded by [[Parthenius IV]].

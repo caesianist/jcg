@@ -1,0 +1,1 @@
+Also called [[Shallum]], but not the same as the fifteenth king. He was the seventeenth king of [[Judah]] (3 months in 609 BC) and the fourth son of king [[Josiah]] whom he succeeded. Son of [[Jehu]].

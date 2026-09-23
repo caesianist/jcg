@@ -1,0 +1,1 @@
+An antipope who ruled in opposition to Pope [[Innocent II]] from 1130 until his death in 1138. After the death of Pope [[Honorius II]], the college of cardinals was divided over his successor. Unusually, the election was entrusted to eight cardinals, who elected Gregorio Papareschi as Innocent II.

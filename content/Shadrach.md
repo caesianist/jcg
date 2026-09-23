@@ -1,0 +1,1 @@
+One of three Jewish men are thrown into a fiery furnace by [[Nebuchadnezzar]] King of Babylon for refusing to bow to the king's image. 

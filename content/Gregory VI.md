@@ -1,0 +1,1 @@
+Bishop of Rome and ruler of the Papal States from 1 May 1045 until his resignation at the [[Council of Sutri]] on 20 December 1046. Succeeded by [[Clement II]].

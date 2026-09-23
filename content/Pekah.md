@@ -1,0 +1,1 @@
+The eighteenth and penultimate king of Israel. He was a captain in the army of king [[Pekahiah]] of Israel, whom he killed to become king. Pekah was the son of [[Remaliah]], succeeded by [[Hoshea]].

@@ -1,0 +1,1 @@
+King who ruled over the city of [[Bezek]]. After he is captured his toes and thumbs are cut off, this is because as he recalls, he gave this same treatment to 70 other kings.

@@ -1,0 +1,1 @@
+Refers to [[Mani]], the founder of Manichaeism.

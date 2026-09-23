@@ -1,0 +1,1 @@
+Descendant of [[Simeon]], son of [[Amaziah]].

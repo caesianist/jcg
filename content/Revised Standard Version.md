@@ -1,0 +1,1 @@
+Commissioned by the National Council of Churches, is a revision of the American Standard Version of 1901. Some portions of Isaiah followed the text found in the Dead Sea Scrolls. Later editions, at the request of the Episcopal Church in the US, included the Deuterocanonical books.

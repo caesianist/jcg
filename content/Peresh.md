@@ -1,0 +1,1 @@
+Son of [[Machir]] and [[Maacah]].

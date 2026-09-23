@@ -1,0 +1,1 @@
+Located in the Upper Galilee, north of the Sea of Galilee, in the northern Korazim Plateau. From the Middle Bronze Age (around 1750 BCE) to the Iron Age (ninth century BCE), Hazor was the largest fortified city in the region.

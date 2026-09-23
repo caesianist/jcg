@@ -1,0 +1,1 @@
+One of the apostles of [[Jesus]], considered the first bishop of Rome and succeeded by [[Linus]]. He was traditionally stated to be crucified by emperor [[Nero]]. 

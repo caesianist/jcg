@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from March to August 1596. Succeeded by [[Theophanes I]].

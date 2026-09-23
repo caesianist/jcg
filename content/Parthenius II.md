@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople for two periods (1644–1646, 1648–1651). Succeeded by [[Joannicius II]] both times.

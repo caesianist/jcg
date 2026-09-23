@@ -1,0 +1,1 @@
+One of [[Solomon]]'s construction projects, fifty cubits long and thirty cubits wide. There was a porch in front with pillars, and a canopy in front of them.

@@ -1,0 +1,1 @@
+A claimant to papacy elected by the [[Council of Pisa]] during the [[Western Schism]] (1378–1417). He reigned briefly from 26 June 1409 to his death in 1410, in opposition to Rome's [[Gregory XII]] and Avignon's [[Benedict XIII]]. Later considered an antipope and not legitimate.

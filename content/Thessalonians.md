@@ -1,0 +1,1 @@
+Members of the church of [[Thessalonica]].

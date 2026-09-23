@@ -1,0 +1,1 @@
+Bishop of Rome from 30 June 296 to his death in 304. Succeeded by [[Marcellus I]].

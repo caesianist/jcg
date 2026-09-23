@@ -1,0 +1,1 @@
+Son of [[Reuel]]. Either father-in-law or the brother-in-law of [[Moses]], and belonging either to the [[Kenites]] or the [[Midianites]].

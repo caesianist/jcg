@@ -1,0 +1,1 @@
+The ancestor of an influential family of [[Judah]] which returned to Jerusalem from the captivity.

@@ -1,0 +1,1 @@
+Derived from the Hebrew root "banah," meaning "to build," which is fitting given its historical significance as a fortified city. It is situated near the Mediterranean coast, approximately 20 miles south of [[Joppa]] (modern-day Jaffa) and 15 miles north of [[Ashdod]].

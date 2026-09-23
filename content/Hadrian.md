@@ -1,0 +1,1 @@
+Roman emperor from 117 to 138. Succeeded by [[Antoninus Pius]].

@@ -1,0 +1,1 @@
+Bishop of Rome from 15 December 687 to his death on 8 September 701. Succeeded by [[John VI]].

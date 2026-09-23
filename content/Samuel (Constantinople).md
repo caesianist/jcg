@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople during the periods 1763–1768 and 1773–1774. Succeeded by [[Meletius II]] and [[Sophronius II]].

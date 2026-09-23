@@ -1,0 +1,1 @@
+Founder of the Roman Empire and the first Roman emperor from 27 BC until his death in AD 14. Succeeded by [[Tiberius]].

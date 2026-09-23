@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople (30 July – 10 August 1679). Succeeded by [[James (Constantinople)]].

@@ -1,0 +1,1 @@
+A Latin text traditionally thought to be a decretal of the prolific Pope [[Gelasius I]] (492–496). The work reached its final form in a five-chapter text written by an anonymous scholar between 519 and 553. The second chapter is a list of books of Scripture defined as part of the biblical canon by a Council of Rome, traditionally dated to Pope [[Damasus I]] (366–383)

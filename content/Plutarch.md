@@ -1,0 +1,1 @@
+Served as Bishop of Byzantium for sixteen years (89 to 105 AD), succeeded by [[Sedecion]].

@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 12 April 806 to 13 March 815. Succeeded by [[Theodotus I]].

@@ -1,0 +1,1 @@
+Revision of the [[Revised Standard Version]]. Published by the National Council of Churches, the NRSV is generally considered by scholars to be reliable. The translators took advantage of the recent discovery of the Dead Sea Scrolls and other significant manuscript discoveries.

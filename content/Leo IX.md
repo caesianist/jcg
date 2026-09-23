@@ -1,0 +1,1 @@
+Bishop of Rome and ruler of the Papal States from 12 February 1049 to his death in 1054. Succeeded by [[Victor II]].

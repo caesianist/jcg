@@ -1,0 +1,1 @@
+Held in the Anatolian city of [[Ephesus]] in 475. It was presided over by [[Timothy II of Alexandria]], and also attended by [[Peter the Fuller]], then Patriarch of Antioch. It ratified a recent Encyclical of Emperor [[Basiliscus]], reportedly signed by 500-700 bishops throughout the Empire, which condemned the [[Council of Chalcedon]].

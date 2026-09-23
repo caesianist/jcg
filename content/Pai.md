@@ -1,0 +1,1 @@
+City in [[Edom]], name of city given after [[Baal-hanan]] died and [[Hadad]] succeeded him.

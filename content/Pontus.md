@@ -1,0 +1,1 @@
+Hellenistic kingdom centered in the historical region of Pontus, in northern Anatolia, on the southern coast of the Black Sea.

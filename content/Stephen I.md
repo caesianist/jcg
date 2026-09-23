@@ -1,0 +1,1 @@
+Bishop of Rome from 12 May 254 to his death on 2 August 257. Succeeded by [[Sixtus II]].

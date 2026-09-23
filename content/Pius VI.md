@@ -1,0 +1,1 @@
+Head of the Catholic Church and leader of the Papal States from 15 February 1775 to his death in August 1799. Succeeded by [[Pius VII]].

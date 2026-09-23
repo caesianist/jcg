@@ -1,0 +1,1 @@
+Located in the Transjordan region, allotted to the [[Gadites]].

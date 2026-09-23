@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 12 December 1254 to his death in 1261. Succeeded by [[Urban IV]].

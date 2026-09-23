@@ -1,0 +1,1 @@
+The name "Siloam" comes from the Hebrew word Shiloach, meaning “sent” or “sending forth”, town near Jerusalem.

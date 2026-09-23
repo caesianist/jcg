@@ -1,0 +1,1 @@
+Territory inhabited by the [[Philistines]] in [[Canaan]], where they maintained a pentapolis comprising the cities of Gaza, [[Ashkelon]], [[Ashdod]], [[Ekron]], and [[Gath]]. 

@@ -1,0 +1,1 @@
+Located in the southern part of ancient [[Canaan]], within the territory that would later be allotted to the tribe of [[Judah]]. 

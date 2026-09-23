@@ -1,0 +1,1 @@
+Area located in the hill country of [[Ephraim]]. It is where [[Ehud]] made his escape.

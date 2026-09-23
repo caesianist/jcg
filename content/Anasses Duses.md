@@ -1,0 +1,1 @@
+Title for [[Derdekeas]], the name is probably constructed from Greek terms associated with anastasis, “rising” or “resurrection” and dysis, “setting” or “west”.

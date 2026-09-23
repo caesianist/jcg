@@ -1,0 +1,1 @@
+Bishop of Byzantium for approximately fifteen years (114–129 AD), succeeded by [[Eleutherius (Byzantium)]].

@@ -1,0 +1,1 @@
+Meaning "border of blood," a place in the tribe of [[Judah]] where the [[Philistines]] camped when [[David]] fought with [[Goliath]].

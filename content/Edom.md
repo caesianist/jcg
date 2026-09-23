@@ -1,0 +1,1 @@
+An ancient kingdom that stretched across areas in the south of present-day Israel, Jordan, and Palestine. 

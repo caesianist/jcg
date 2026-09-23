@@ -1,0 +1,1 @@
+Brother of [[Joseph Smith Jr.]] born on March 13th, 1811.

@@ -1,0 +1,1 @@
+A man who approaches [[Enoch]] in [[Moses 6]]. Later, the name [[Mahujah]] appears in [[Moses 7]] which some scholars argue is a variant of Mahijah, suggesting they refer to the same individual rather than a place.

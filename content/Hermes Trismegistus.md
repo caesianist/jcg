@@ -1,0 +1,1 @@
+Legendary Hellenistic period figure that originated as a syncretic combination of the Greek god [[Hermes]] and the Egyptian god Thoth.

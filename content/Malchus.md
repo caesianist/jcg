@@ -1,0 +1,1 @@
+The servant of the Jewish High Priest [[Caiaphas]] who participated in the arrest of [[Jesus]].

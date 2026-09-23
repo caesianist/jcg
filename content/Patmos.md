@@ -1,0 +1,1 @@
+Greek island in the Aegean Sea. It is famous as the place where, according to Christian belief, [[John of Patmos]] received the vision found in the book of [[Revelation]] of the New Testament, and where the book was written.

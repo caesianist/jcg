@@ -1,0 +1,1 @@
+Ancient city associated with the [[Israelites]], first referred to in the Bible as being near the place where [[Abraham]] pitched his tent.

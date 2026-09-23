@@ -1,0 +1,1 @@
+Egyptian woman who birthed [[Ishmael]] with [[Abraham]].

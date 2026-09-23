@@ -1,0 +1,1 @@
+One of the people who repaired walls in Jerusalem, a member of the [[Meronothites]].

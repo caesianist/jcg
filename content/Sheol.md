@@ -1,0 +1,1 @@
+The underworld, or the unseen world of the dead to which departed spirits go in the Hebrew Bible. It was said to be a place of stillness and darkness in the subterranean regions.

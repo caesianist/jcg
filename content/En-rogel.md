@@ -1,0 +1,1 @@
+Identified with a site near the modern-day Bir Ayyub, located in the Kidron Valley, southeast of Jerusalem.

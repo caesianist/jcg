@@ -1,0 +1,1 @@
+The place from which [[Solomon]] obtained gold for [[Solomon's Temple]].

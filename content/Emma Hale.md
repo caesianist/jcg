@@ -1,0 +1,1 @@
+Daughter of [[Isaac Hale]], became a wife of [[Joseph Smith Jr.]] on January 18th, 1827.

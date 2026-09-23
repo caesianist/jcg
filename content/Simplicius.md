@@ -1,0 +1,1 @@
+Bishop of Rome from 468 to his death on 10 March 483. Succeeded by [[Felix III]].

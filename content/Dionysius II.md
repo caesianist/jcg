@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1546 to 1556. Succeeded by [[Joasaph II]].

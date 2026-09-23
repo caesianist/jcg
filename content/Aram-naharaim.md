@@ -1,0 +1,1 @@
+Biblical term for an ancient land along the great bend of the Euphrates River. 

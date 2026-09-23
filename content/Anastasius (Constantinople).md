@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 730 to 754. Succeeded by [[Constantine II]].

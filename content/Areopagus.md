@@ -1,0 +1,1 @@
+Principal council of ancient Athens, later serving mainly as a judicial body responsible for cases of homicide, wounding, and certain religious offenses.

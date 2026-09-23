@@ -1,0 +1,1 @@
+A son of [[Lot]] who is an ancestor of the [[Ammonites]].

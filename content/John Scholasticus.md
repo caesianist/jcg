@@ -1,0 +1,1 @@
+Patriarch of Constantinople from 12 April 565 until his death on 31 August 577. Succeeded by [[Eutychius]].

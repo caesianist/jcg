@@ -1,0 +1,1 @@
+Bishop of Rome from 31 January 314 until his death on 31 December 335. Succeeded by [[Mark]].

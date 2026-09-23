@@ -1,0 +1,1 @@
+The ruler of a small realm on the western slopes of Mount [[Hermon]], called [[Abilene]] mentioned by the Jewish historian [[Flavius Josephus]] and in coins from c. 40 BC. There is also mention of a Lysanias in [[Luke 3]].

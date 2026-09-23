@@ -1,0 +1,1 @@
+Name used for 60 towns in [[Machir]], 33 villages in [[Gilead]] with Machir ancestry, and 30 villages in Gilead with Gilead ancestry. 

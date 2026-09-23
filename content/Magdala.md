@@ -1,0 +1,1 @@
+City on the shore of the Sea of Galilee, 5 km (3 miles) north of Tiberias.

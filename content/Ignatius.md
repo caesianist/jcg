@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 847 to 858 and from 867 to 877. Succeeded by [[Photius I]].

@@ -1,0 +1,1 @@
+Bishop of Rome from 882 until his death on 15 May 884. Succeeded by [[Adrian III]].

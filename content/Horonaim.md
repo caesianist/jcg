@@ -1,0 +1,1 @@
+City in [[Moab]], the name may derive from the god [[Horon]], or from Western Semitic words for cave, cavern, hollow or valley.

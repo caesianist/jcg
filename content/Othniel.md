@@ -1,0 +1,1 @@
+Son of [[Kenaz]], brother of [[Caleb]], father of [[Meonothai]]. He was the first of the biblical judges of Israel.

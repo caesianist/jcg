@@ -1,0 +1,1 @@
+Island located 2.5 miles (4 km) off the coast of Asia Minor (modern Turkey).

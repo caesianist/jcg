@@ -1,0 +1,1 @@
+Teacher of the Church of [[Antioch]] and the foster brother of [[Herod Antipas]].

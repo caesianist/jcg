@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople two times, from 1522 to 1524 and from 1525 to 1546. Succeeded by [[Joannicius I]] the first time and [[Dionysius II]] the second time.

@@ -1,0 +1,1 @@
+Father of [[Amminadab]], son of [[Arni]].

@@ -1,0 +1,1 @@
+Mesopotamian god who might have been regarded as a divine tax collector or as a warrior deity.

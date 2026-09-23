@@ -1,0 +1,1 @@
+Byzantine theologian of Bulgarian origin. A native of Prilep, he moved from Pelagonia to Thessalonica. He was involved in the theological dispute surrounding the doctrine of Uncreated Light between [[Gregory Palamas]] and [[Barlaam]] in the 1340s. 

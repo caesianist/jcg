@@ -1,0 +1,1 @@
+Son of [[Maaseiah]], father of [[Baruch]] and [[Seraiah]].

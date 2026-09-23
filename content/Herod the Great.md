@@ -1,0 +1,1 @@
+Born around 72 BC and died 4 or 1 BC. Born around Roman Jewish client king of the Herodian kingdom of Judea from around 37 to 4 or 1 BC. 

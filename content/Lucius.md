@@ -1,0 +1,1 @@
+One of the founders of a Christian Church in [[Antioch]] and citizen from [[Cyrene]].

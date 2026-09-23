@@ -1,0 +1,1 @@
+[[John Wycliffe]] thought that Christians should be able to read the Scriptures in the language they know best. For him and his countrymen, that was English. His work began a process that was completed by a number of pre-Reformation scholars, resulting in the first English translation of the Latin [[Vulgate]].

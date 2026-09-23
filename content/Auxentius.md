@@ -1,0 +1,1 @@
+Arian theologian and bishop of Milan from around 355 to 374 AD, succeeded by [[Ambrose]].

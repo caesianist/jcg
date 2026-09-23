@@ -1,0 +1,1 @@
+A malevolent god and demiurge (creator of the material world) according to various Gnostic sects, represented sometimes as a theriomorphic, lion-headed serpent. He is identified as a false god who keeps souls trapped in physical bodies, imprisoned in the material universe.

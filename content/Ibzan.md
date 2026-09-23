@@ -1,0 +1,1 @@
+Served as a judge of Israel for seven years, had thirty sons and thirty daughters.

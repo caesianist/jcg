@@ -1,0 +1,1 @@
+A major goddess in ancient Northwest Semitic cultures, often associated with fertility, motherhood, and sacred trees. 

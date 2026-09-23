@@ -1,0 +1,1 @@
+Town in south Palestine, also refers to a son of [[Shuthelah]].

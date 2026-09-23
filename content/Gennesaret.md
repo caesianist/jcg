@@ -1,0 +1,1 @@
+A small plain located on the west side of the Sea of Galilee.

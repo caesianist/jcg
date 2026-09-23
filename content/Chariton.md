@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1178 to 1179. Succeeded by [[Theodosius I (Constantinople)]].

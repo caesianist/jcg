@@ -1,0 +1,1 @@
+Roman emperor from 161 until his death in 169, alongside his adoptive brother [[Marcus Aurelius]]. 

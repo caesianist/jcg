@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople twice, in 1716–1726 and 1732–1733. Succeeded by [[Callinicus III]] and [[Seraphim I]].

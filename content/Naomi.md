@@ -1,0 +1,1 @@
+Wife of [[Elimelech]], mother of [[Mahlon]] and [[Chilion]].

@@ -1,0 +1,1 @@
+Jewish prophet from [[Gath-hepher]] in the Northern Kingdom of Israel around the 8th century BCE according to the Hebrew Bible. He is the central figure of the [[Book of Jonah]]. Son of [[Amittai]].

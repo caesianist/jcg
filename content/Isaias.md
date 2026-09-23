@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1323 to 1332. Succeeded by [[John XIV (Constantinople)]].

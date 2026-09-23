@@ -1,0 +1,1 @@
+Alternative form of the name [[Yehoshua]], a name given by Jews/early Christians of the Second Temple Period to Jesus.

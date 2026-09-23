@@ -1,0 +1,1 @@
+Ecumenical patriarch of Constantinople from 15 December 1025 to his death, 20 February 1043. Succeeded by [[Michael I]].

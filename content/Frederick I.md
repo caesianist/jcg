@@ -1,0 +1,1 @@
+Holy Roman Emperor from 1155 until his death in 1190. He was elected King of Germany in Frankfurt on 4 March 1152 and crowned in Aachen on 9 March 1152. He was crowned King of Italy on 24 April 1155 in Pavia and emperor by Pope [[Adrian IV]] on 18 June 1155 in Rome. 

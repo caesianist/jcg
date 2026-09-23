@@ -1,0 +1,1 @@
+Heavenly/light entity invoked by [[Shem]].

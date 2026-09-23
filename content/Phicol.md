@@ -1,0 +1,1 @@
+Military leader serving [[Abimelech]], king of [[Gerar]], according to the Hebrew Bible.

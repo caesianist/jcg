@@ -1,0 +1,14 @@
+CHAPTER XLVI
+How entire Satisfaction and true Rest are to be found in God alone, and not in any Creature; and how he who Will be obedient unto God, must also be obedient to the Creatures, with all Quietness, and he who would love God, must love all Things in One.
+
+ 
+
+It is said, that he who is content to find all his satisfaction in God, hath enough; and this is true. And he who findeth satisfaction in aught which is this and that, findeth it not in God; and he who findeth it in God, findeth it in nothing else, but in that which is neither this nor that, but is All. For God is One and must be One, and God is All and must be All. And now what is, and is not One, is not God; and what is, and is not All and above All, is also not God, for God is One and above One, and All and above All. Now he who findeth full satisfaction in God, receiveth all his satisfaction from One source, and from One only, as One. And a man cannot find all satisfaction in God, unless all things are One to him, and One is All, and something and nothing are alike.48 But where it should be thus, there would be true satisfaction, and not else.
+
+Therefore also, he who will wholly commit himself unto God and be obedient to Him, must also resign himself to all things, and be willing to suffer them, without resisting or defending himself or calling for succour. And he who doth not thus resign or submit himself to all things in One as One, doth not resign or submit himself to God. Let us look at Christ. And he who shall and will lie still under God’s hand, must lie still under all things in One as One, and in no wise withstand any suffering. Such an one were a Christ. And he who fighteth against affliction, and refuseth to endure it, is truly fighting against God. That is to say, we may not withstand any creature or thing by force of war, either in will or works. But we may indeed, without sin, prevent affliction, or avoid it, or flee from it.
+
+Now he who shall or will love God, loveth all things in One as All, One and All, and One in All as All in One; and he who loveth somewhat, this or that, otherwise than in the One, and for the sake of the One, loveth not God; for he loveth somewhat which is not God. Therefore he loveth it more than God. Now he who loveth somewhat more than God or along with God, loveth not God, for He must be and will be alone loved, and verily nothing ought to be loved but God alone. And when the true divine Light and Love dwell in a man, he loveth nothing else but God alone, for he loveth God as Goodness and for the sake of Goodness, and all Goodness as One, and one as All; for, in truth, All is One and One is All in God.
+
+ 
+
+48    Literally aught and nought, itch und nicht; but aught means any thing, the idea of the original is emphatically  some thing, a part, not the whole.—Tr.

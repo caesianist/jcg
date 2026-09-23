@@ -1,0 +1,1 @@
+A lost text referred to in [[1 Kings 11]]:41, which reads: "And the rest of the acts of Solomon, and all that he did, and his wisdom, are they not written in the book of the acts of Solomon?" It may have been lost during the Babylonian exile.

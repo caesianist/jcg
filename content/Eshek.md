@@ -1,0 +1,1 @@
+Brother of [[Azel]], father of [[Jeush]], though may be two different figures or furthermore if two different figures, rather than being father of Jeush, Eshek may just be [[Bilhan]] or at least referring to the same son.

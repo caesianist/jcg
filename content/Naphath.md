@@ -1,0 +1,1 @@
+Area surrounding the ancient city of [[Dor]], located on the Mediterranean coast of Israel, south of Mount [[Carmel]].

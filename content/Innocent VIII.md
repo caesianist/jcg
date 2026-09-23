@@ -1,0 +1,1 @@
+Head of the Catholic Church and leader of the Papal States from 29 August 1484 to his death, in July 1492. Succeeded by [[Alexander VI]].

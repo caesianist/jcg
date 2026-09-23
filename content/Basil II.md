@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from August 1183 to February 1186. Succeeded by [[Nicetas II]].

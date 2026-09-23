@@ -1,0 +1,1 @@
+A person who had questions about the resurrection, these questions were answered in [[Treatise on the Resurrection]]. Who this is is mostly unknown.

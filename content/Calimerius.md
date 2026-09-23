@@ -1,0 +1,1 @@
+Early bishop of Milan who died around 280 AD. Succeeded by [[Monas]].

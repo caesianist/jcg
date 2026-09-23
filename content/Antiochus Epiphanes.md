@@ -1,0 +1,1 @@
+King of the Seleucid Empire from 175 BC until his death in 164 BC. Son of [[Antiochus]].

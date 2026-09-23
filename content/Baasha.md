@@ -1,0 +1,1 @@
+Son of [[Ahijah]], father of [[Ela]], was the third king of the northern kingdom of Israel, reigning from approximately 909 to 886 BC. He was from the tribe of [[Issachar]] and came to power by overthrowing and assassinating King [[Nadab]], the son of [[Jeroboam]], during a military campaign against the Philistine city of [[Gibbethon]].

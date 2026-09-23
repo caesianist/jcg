@@ -1,0 +1,1 @@
+Cave used as a tomb for [[Sarah]], [[Abraham]], [[Isaac]], [[Rebekah]], [[Leah]], and [[Jacob]].

@@ -1,0 +1,1 @@
+Refers to a deity worshiped by the people of [[Shechem]], a city in ancient Israel. The name itself combines "El," a common Semitic term for God, with "berith," meaning covenant or agreement, related to [[Baal-berith]].

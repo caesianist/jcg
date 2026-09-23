@@ -1,0 +1,1 @@
+Gnostic and claimed magician. Mentioned in the works of [[Irenaeus]], [[Tertullian]] and [[Justin Martyr]] is the oldest source of knowledge about Menander.

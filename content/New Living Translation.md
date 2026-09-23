@@ -1,0 +1,1 @@
+Translation of the Bible in contemporary English. Published in 1996 by Tyndale House Foundation, the NLT was created "by 90 leading Bible scholars." The NLT relies on recently published critical editions of the original Hebrew, Aramaic, and Greek texts. The origin of the NLT came from a project aiming to revise [[The Living Bible]] (TLB). 

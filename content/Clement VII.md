@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 19 November 1523 to his death on 25 September 1534. Succeeded by [[Paul III]].

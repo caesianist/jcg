@@ -1,0 +1,1 @@
+Female divine/aeonic figure in Sethian Gnosticism.

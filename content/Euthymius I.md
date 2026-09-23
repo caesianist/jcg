@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from February 907 to 15 May 912. Succeeded by [[Nicholas I (Constantinople)]].

@@ -1,0 +1,1 @@
+Head of the Catholic Church from 30 December 1334 to his death, in April 1342. Succeeded by [[Clement VI]].

@@ -1,0 +1,1 @@
+Located near [[Abel-meholah]]. East of the Jordan river.

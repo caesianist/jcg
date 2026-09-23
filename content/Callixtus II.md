@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from February 1119 to his death in 1124. His pontificate was shaped by the [[Investiture controversy]], which he was able to settle through the [[Concordat of Worms]] in 1122. Succeeded by [[Honorius II]].

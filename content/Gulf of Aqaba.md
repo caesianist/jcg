@@ -1,0 +1,1 @@
+A large gulf at the northern tip of the Red Sea, southeast of the [[Sinai]] Peninsula, and west of the Arabian Peninsula. Its coastline is divided among four countries: Egypt, Israel, Jordan, and Saudi Arabia.

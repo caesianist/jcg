@@ -1,0 +1,1 @@
+City of the ancient Levant situated on the northwestern shore of the Sea of Galilee. 

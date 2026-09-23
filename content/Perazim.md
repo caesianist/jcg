@@ -1,0 +1,1 @@
+The name "Perazim" is derived from the Hebrew root "parats," meaning "to break through" or "to burst forth." Located near Jerusalem.

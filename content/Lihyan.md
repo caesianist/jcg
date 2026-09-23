@@ -1,0 +1,1 @@
+ Arab kingdom that played a vital cultural and economic role in the north-western region of the Arabian Peninsula and used Dadanitic language. The kingdom flourished for at least a century and a half, at some point between the 5th and 1st centuries BC. In the Bible is called [[Dedan]] and [[Dedanites]].

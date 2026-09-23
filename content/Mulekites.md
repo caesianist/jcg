@@ -1,0 +1,1 @@
+One of four groups (along with the [[Nephites]], [[Lamanites]], and [[Jaredites]]) said to have inhabited the ancient Americas. Descendants of [[Mulek]].

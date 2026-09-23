@@ -1,0 +1,1 @@
+King of the [[Ammonites]] around 600 BCE. He was the son of King [[Hissalel]] and possibly father to [[Baalis]] though uncertain.

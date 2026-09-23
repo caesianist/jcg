@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1491 to 1497. Succeeded by [[Nephon II]].

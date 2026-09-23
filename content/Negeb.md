@@ -1,0 +1,1 @@
+Also known as [[Negev]]. A desert and semidesert area in southern Israel. 

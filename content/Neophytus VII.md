@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople during the periods 1789–1794 and 1798–1801. Succeeded by [[Gerasimus III]] and [[Callinicus V]].

@@ -1,0 +1,1 @@
+City near [[Sodom]] and [[Gomorrah]].

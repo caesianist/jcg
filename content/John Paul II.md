@@ -1,0 +1,1 @@
+Head of the Catholic Church and sovereign of Vatican City from 16 October 1978 until his death in 2005. Succeeded by [[Benedict XVI]].

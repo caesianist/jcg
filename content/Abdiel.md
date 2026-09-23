@@ -1,0 +1,1 @@
+Son of [[Guni]], father of [[Ahi]].]]

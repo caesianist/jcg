@@ -1,0 +1,1 @@
+The fourth luminary to arise from God in some Gnostic literature.

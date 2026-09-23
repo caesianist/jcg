@@ -1,0 +1,1 @@
+Bishop of Rome from 311 to his death on 10 or 11 January 314. Succeeded by [[Sylvester I]].

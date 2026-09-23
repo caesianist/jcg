@@ -1,0 +1,1 @@
+Creator of the left ear in [[Apocryphon of John]].

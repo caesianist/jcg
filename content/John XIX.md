@@ -1,0 +1,1 @@
+Bishop of Rome and nominal ruler of the Papal States from April 1024 to October 1032. Succeeded by [[Benedict IX]].

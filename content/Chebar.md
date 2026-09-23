@@ -1,0 +1,1 @@
+A canal or tributary of the Euphrates River, located in the region of ancient Babylonia. 

@@ -1,0 +1,1 @@
+Held the position of being "in charge of the palace" at [[Tirzah]], which was the capital of the Northern Kingdom of Israel at the time. 

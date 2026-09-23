@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1 April 815 to January 821. Succeeded by [[Antony I]].

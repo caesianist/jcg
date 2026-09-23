@@ -1,0 +1,1 @@
+A mountain range located east of the Jordan River and the Dead Sea.

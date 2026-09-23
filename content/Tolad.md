@@ -1,0 +1,1 @@
+A place some descendants of [[Shimei]] lived in the tribe of [[Judah]].

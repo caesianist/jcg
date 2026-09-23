@@ -1,0 +1,1 @@
+A gate or a notable area within the city of [[Heshbon]], which was located east of the Jordan River in the territory that was allotted to the tribe of [[Reuben]].

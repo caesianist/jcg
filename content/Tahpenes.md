@@ -1,0 +1,1 @@
+Egyptian queen regnant, the pharaoh awarded [[Hadad]] the Edomite with Tahpenes' sister in marriage. Tahpenes weaned [[Genubath]], who was the son of Hadad and her sister, and who was also raised in the pharaoh's household.[

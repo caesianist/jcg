@@ -1,0 +1,1 @@
+One of the divine powers presiding over the entrance to eternal life in Sethian Gnosticism.

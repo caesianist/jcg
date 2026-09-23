@@ -1,0 +1,1 @@
+Father of [[Boaz]], son of [[Nahshon]].

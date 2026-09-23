@@ -1,0 +1,1 @@
+Located in the wilderness of [[Zin]], near the border of [[Edom]] within [[Kadesh]].

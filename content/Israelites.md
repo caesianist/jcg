@@ -1,0 +1,1 @@
+ An ancient Semitic-speaking people who lived in [[Canaan]] during the Iron Age. The Israelites were divided into the Twelve Tribes of Israel and later formed the Iron Age kingdoms of Israel and [[Judah]].

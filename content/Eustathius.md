@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from July 1019 to November 1025. Succeeded by [[Alexius]].

@@ -1,0 +1,1 @@
+In [[Joshua 19]], refers to a fortified city of [[Judah]].

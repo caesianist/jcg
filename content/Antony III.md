@@ -1,0 +1,1 @@
+ Ecumenical Patriarch of Constantinople from 973 to 978. He died in Constantinople in 983. Succeeded by [[Nicholas II (Constantinople)]].

@@ -1,0 +1,1 @@
+Bishop of Rome from about 108/109 to 116/119 AD. Some believe he suffered martyrdom under the Roman emperor [[Trajan]] or [[Hadrian]]. Succeeded by [[Sixtus I]].

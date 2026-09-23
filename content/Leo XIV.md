@@ -1,0 +1,1 @@
+Current head of the Catholic Church and sovereign of Vatican City since May 8th, 2025.

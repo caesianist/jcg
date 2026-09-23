@@ -1,0 +1,1 @@
+Identified as the "son of [[Reuben]]," indicating his lineage from the tribe of Reuben, one of the twelve tribes of Israel. The Stone of Bohan is mentioned as a significant landmark in the delineation of tribal territories. It is located in the region that was allocated to the tribe of [[Judah]], near the border with the tribe of [[Benjamin]]. 

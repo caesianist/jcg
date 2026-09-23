@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 16 May 1605 to his death, in January 1621. Succeeded by [[Gregory XV]].

@@ -1,0 +1,1 @@
+Bishop of Rome and nominal ruler of the Papal States from March 914 to his death on 28 May 928. Succeeded by [[Leo VI]].

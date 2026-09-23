@@ -1,0 +1,1 @@
+Bishop of Byzantium from 169 until his death in 187. Succeeded by [[Olympianus]].

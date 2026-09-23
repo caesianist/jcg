@@ -1,0 +1,1 @@
+[[Saul]] and his assistant passed through the land of Shaalim looking for his father's lost donkeys, probably in the highlands of [[Ephraim]]. Some manuscripts of the Septuagint locate the burial place of [[Abdon]] in [[Pirathon]], in the hill country of Ephraim, in the land of Shaalim, although other versions read "in the hill country of the [[Amalekites]]".

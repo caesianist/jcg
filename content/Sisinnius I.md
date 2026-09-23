@@ -1,0 +1,1 @@
+Archbishop of Constantinople from 426 to 427. Succeeded by [[Nestorius]].

@@ -1,0 +1,1 @@
+City of [[Canaan]] in [[Shephelah]], lays approximately 20 miles northwest of Jerusalem and about 7 miles southeast of the Mediterranean Sea. 

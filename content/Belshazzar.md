@@ -1,0 +1,1 @@
+Meaning "Bel, protect the king"; was the son and crown prince of [[Nabonidus]] (reigned 556 – 539 BC), the last king of the Neo-Babylonian Empire. Through his mother, he might have been a grandson of [[Nebuchadnezzar II]] (r. 605 – 562 BC), though this is not certain and the claims to kinship with Nebuchadnezzar may have originated from royal propaganda.

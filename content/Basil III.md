@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from July 1925, and serving until his death in September 1929. Succeeded by [[Photius II]].

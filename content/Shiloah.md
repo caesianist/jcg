@@ -1,0 +1,1 @@
+Historically identified with the [[Pool of Siloam]], a significant water reservoir in ancient Jerusalem. 

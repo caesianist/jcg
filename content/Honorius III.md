@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 18 July 1216 to his death on 18 March 1227. Promoted the [[Fifth Crusade]]. Succeeded by [[Gregory IX]].

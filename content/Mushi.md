@@ -1,0 +1,1 @@
+Son of [[Merari]], father of [[Jerimoth]] and another [[Mahli]].

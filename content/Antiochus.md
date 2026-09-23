@@ -1,0 +1,1 @@
+Sixth ruler of the Seleucid Empire, reigning from 223 BC to 187 BC.

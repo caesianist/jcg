@@ -1,0 +1,1 @@
+T he area in Egypt that was allotted to the Hebrews by the Pharaoh during the time of [[Joseph]]. Was also were [[Moses]] was born. 

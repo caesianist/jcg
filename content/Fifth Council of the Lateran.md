@@ -1,0 +1,1 @@
+Held between 1512 and 1517, was the eighteenth ecumenical council of the Catholic Church and was the last council before the Protestant Reformation and the [[Council of Trent]]. This was the first time since 1213 that the Papal States would host an ecumenical council. Convoked by Pope [[Julius II]] and presided by Julius II aswell as Pope [[Leo X]]. 

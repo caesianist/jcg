@@ -1,0 +1,1 @@
+Referenced first in [[Genesis 6]].  They are traditionally associated with extraordinary size, strength, or status, though the biblical texts provide only brief and ambiguous descriptions. Descriptions related to the Nephilim show up in [[Judith 16]], [[Sirach 16]], [[Wisdom of Solomon 14]], and possibly [[Ezekiel 32]] though debated.

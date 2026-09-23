@@ -1,0 +1,1 @@
+A priest of Caesarea and chief among the biblical scholars of his generation. He was the friend and teacher of [[Eusebius of Caesarea]], who recorded details of his career.

@@ -1,0 +1,1 @@
+Disciple and protégé of [[Elijah]], and after Elijah was taken up in a whirlwind, Elisha received a double portion of his power and he was accepted as the leader of the sons of the prophets. Son of [[Shaphat]].

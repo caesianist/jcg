@@ -1,0 +1,1 @@
+Another name for [[Jesus]], some claim a fulfillment of a prophecy made by [[Isaiah]] where the child is to be called [[Immanuel]].

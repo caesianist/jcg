@@ -1,0 +1,1 @@
+A fellow worker with [[Paul the Apostle]], he is first mentioned in [[Acts 19]].

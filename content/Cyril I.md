@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople six times. 1612 — locum tenens, briefly, 1620–1623, 1623–1633, 1633–1634, 1634–1635, 1637–1638. Succeeded by [[Timothy II]], [[Gregory IV (Constantinople)]], [[Anthimus II]], [[Cyril II]], [[Athanasius III]], Cyril II again, [[Neophytus III]], and Cyril II again, in that order.

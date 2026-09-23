@@ -1,0 +1,1 @@
+Near the hill of [[Ammah]] and the wilderness of [[Gibeon]], situated in the region of [[Benjamin]], north of Jerusalem.

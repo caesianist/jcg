@@ -1,0 +1,1 @@
+ Ecumenical Patriarch of Constantinople from 970 to 974. Succeeded by [[Antony III]].

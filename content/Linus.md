@@ -1,0 +1,1 @@
+Bshop of Rome from c. 68 to his death in 80. He is generally regarded as the second bishop of Rome, after [[Peter the Apostle]]. Linus is the same person as the one mentioned in the New Testament. Linus is mentioned in the valediction of [[2 Timothy 4]] as being with [[Paul the Apostle]] in Rome near the end of Paul's life. Succeeded by [[Anacletus]].

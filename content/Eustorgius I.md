@@ -1,0 +1,1 @@
+Bishop of Milan from 343 to about 349. Succeeded by [[Dionysius (Milan)]].

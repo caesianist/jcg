@@ -1,0 +1,1 @@
+Bishop of Byzantium for eleven years (187 – 198). Succeeded by [[Marcus I]].

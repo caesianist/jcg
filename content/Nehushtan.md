@@ -1,0 +1,1 @@
+The name given to a bronze image of a serpent on a pole from [[Moses]] ordered by Yahweh.

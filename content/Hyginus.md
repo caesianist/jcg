@@ -1,0 +1,1 @@
+Bishop of Rome from c. 138 to his death in c. 142, succeeded by [[Anicetus]].

@@ -1,0 +1,1 @@
+Apostle of [[Jesus]], one of the apostles chosen to replace [[Judas Iscariot]] after his betrayal.

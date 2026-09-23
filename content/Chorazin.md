@@ -1,0 +1,1 @@
+Village in the Roman and Byzantine periods, it stood on the Korazim Plateau in the Upper Galilee on a hill above the northern shore of the Sea of Galilee, 2.5 mi (4.0 km) from [[Capernaum]] in what is now the territory of modern Israel.

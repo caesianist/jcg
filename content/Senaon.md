@@ -1,0 +1,1 @@
+Mystical name/title of the supreme, hidden divine principle.

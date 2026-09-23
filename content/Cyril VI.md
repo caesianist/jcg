@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople between the years 1813 and 1818. Succeeded by [[Gregory V (Constantinople)]].

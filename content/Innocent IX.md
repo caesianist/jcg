@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 29 October to 30 December 1591. Succeeded by [[Clement VIII]].

@@ -1,0 +1,1 @@
+Town located in the tribe of [[Ephraim]].

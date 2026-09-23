@@ -1,0 +1,1 @@
+A forested area in [[Judah]] to which [[David]] and his family return after leaving refuge in [[Moab]], at the direction of the prophet [[Gad]].

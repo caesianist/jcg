@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople for four times in the 18th century. Succeeded by [[Jeremias III]], [[Neophytus VI]], and [[Cyril V]]. 

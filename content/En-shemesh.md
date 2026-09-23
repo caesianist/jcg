@@ -1,0 +1,1 @@
+Situated near the border of the tribal lands of [[Judah]] and [[Benjamin]]. Near the Valley of [[Achor]], [[Gilgal]], and [[En-rogel]].

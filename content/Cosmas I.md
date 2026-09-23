@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 2 August 1075 to 8 May 1081. Succeeded by [[Eustratius]].

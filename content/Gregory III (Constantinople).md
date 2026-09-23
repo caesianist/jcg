@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1445–1450. Succeeded by [[Athanasius II]].

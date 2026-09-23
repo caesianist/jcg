@@ -1,0 +1,1 @@
+A purported supercelestial region beyond the seven heavens theorized in Gnostic systems of the early Christian era. 

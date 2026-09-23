@@ -1,0 +1,1 @@
+City sacked by [[Shalman]].

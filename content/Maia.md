@@ -1,0 +1,1 @@
+One of the [[Pleiades]], mother of [[Hermes]].

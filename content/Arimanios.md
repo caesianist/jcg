@@ -1,0 +1,1 @@
+Pharisee that confronted [[John the Apostle]] in [[Apocryphon of John]].

@@ -1,0 +1,1 @@
+A mountain or mountainous region that extends from Lebanon to Syria.

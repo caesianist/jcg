@@ -1,0 +1,1 @@
+Fifth king of the Achaemenid Empire of Persia, from August 465 to December 424 BC, was the third son of [[Xerxes I]], succeeded by [[Xerxes II]].

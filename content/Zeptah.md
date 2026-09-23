@@ -1,0 +1,1 @@
+Name for [[Egyptus]], wife of ham in pre-1835 manuscripts of the [[Book of Abraham]].

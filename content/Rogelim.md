@@ -1,0 +1,1 @@
+Home of [[Barzillai]]. The name of this area is believed to mean "fullers" or "treaders," possibly indicating a place associated with the processing of cloth or textiles.

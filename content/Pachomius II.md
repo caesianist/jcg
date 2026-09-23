@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1584 to 1585. Succeeded by [[Theoleptus II]].

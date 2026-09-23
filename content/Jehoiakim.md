@@ -1,0 +1,1 @@
+Eighteenth King of [[Judah]] from 609 to 598 BC. He was the second son of King [[Josiah]], husband to [[Nehushta]].

@@ -1,0 +1,1 @@
+One of the regions under the jurisdiction of [[Ben-hesed]], one of Solomon's twelve district governors. Near or within [[Socoh]] and the land of [[Hepher]].

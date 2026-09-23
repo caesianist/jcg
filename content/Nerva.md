@@ -1,0 +1,1 @@
+Roman emperor from AD 96 to 98. Succeeded by [[Trajan]].

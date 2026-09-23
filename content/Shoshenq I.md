@@ -1,0 +1,1 @@
+A pharaoh of ancient Egypt from 943 to 922 BC. Presumed to be [[Shishak]].

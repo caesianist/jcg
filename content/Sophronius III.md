@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1863 to 1866. Succeeded by [[Gregory VI (Constantinople)]].

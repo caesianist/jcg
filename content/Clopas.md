@@ -1,0 +1,1 @@
+Husband of [[Mary]], father of [[Joses]], often identified with another figure of a similar name, [[Cleopas]].

@@ -1,0 +1,1 @@
+A deity/object of idolatry related to the stars.

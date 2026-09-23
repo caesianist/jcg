@@ -1,0 +1,12 @@
+CHAPTER XXXVII
+How in God, as God, there can neither be Grief, Sorrow, Displeasure, nor the like, but how it is otherwise in a Man who is “made a Partaker of the Divine Nature.”
+
+ 
+
+In God, as God, neither sorrow nor grief nor displeasure can have place, and yet God is grieved on account of men’s sins. Now since grief cannot befall God without the creature, this cometh to pass where He is made man, or when He dwelleth in a Godlike man. And there, behold, sin is so hateful to God, and grieveth Him so sore, that He would willingly suffer agony and death, if one man’s sins might be thereby washed out. And if He were asked whether He would rather live and that sin should remain, or die and destroy sin by His death, He would answer that He would a thousand times rather die. For to God one man’s sin is more hateful, and grieveth Him worse than His own agony and death. Now if one man’s sin grieveth God so sore, what must the sins of all men do? Hereby ye may consider, how greatly man grieveth God with his sins.
+
+And therefore where God is made man, or when He dwelleth in a truly Godlike man, nothing is complained of but sin, and nothing else is hateful; for all that is, and is done, without sin, is as God will have it, and is His. But the mourning and sorrow of a truly Godlike man on account of sin, must and ought to last until death, should he live till the Day of Judgment, or for ever. From this cause arose that hidden anguish of Christ, of which none can tell or knoweth ought save Himself alone, and therefore is it called a mystery.
+
+Moreover, this is an attribute of God, which He will have, and is well pleased to see in a man; and it is indeed God’s own, for it belongeth not unto the man, he cannot make sin to be so hateful to himself. And where God findeth this grief for sin, He loveth and esteemeth it more than ought else; because it is, of all things, the bitterest and saddest that man can endure.
+
+All that is here written touching this divine attribute, which God will have man to possess, that it may be brought into exercise in a living soul, is taught us by that true Light, which also teacheth the man in whom this Godlike sorrow worketh, not to take it unto himself, any more than if he were not there. For such a man feeleth in himself that he hath not made it to spring up in his heart, and that it is none of his, but belongeth to God alone.

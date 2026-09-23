@@ -1,0 +1,1 @@
+Demon of grief in [[Apocryphon of John]].

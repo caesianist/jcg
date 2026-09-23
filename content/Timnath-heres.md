@@ -1,0 +1,1 @@
+Likely another name for [[Timnath-serah]]. The burial site of [[Joshua]], located in the hill country of [[Ephraim]] near [[Gaash]].

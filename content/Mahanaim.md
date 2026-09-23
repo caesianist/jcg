@@ -1,0 +1,1 @@
+The place where [[Jacob]] had the vision of angels in [[Genesis 32]], later a town alotted to [[Gad]] in [[Joshua 13]]. [[David]] also lodges here at the time of [[Absalom]]'s rebellion. Said to be near [[Jabbok]], in the same general area as [[Jabesh-gilead]], beyond the Jordan River. 

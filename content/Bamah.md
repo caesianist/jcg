@@ -1,0 +1,1 @@
+The Hebrew word "Bamah" (בָּמָה) is often translated as "high place."

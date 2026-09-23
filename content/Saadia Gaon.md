@@ -1,0 +1,1 @@
+A prominent rabbi, gaon, Jewish philosopher, and exegete who was active in the Abbasid Caliphate. Saadia is the first important rabbinic figure to write extensively in Judeo-Arabic. His extensive writings are one of the foundations of Judeo-Arabic literature. Known for his works on Hebrew linguistics, Halakha, and Jewish philosophy.

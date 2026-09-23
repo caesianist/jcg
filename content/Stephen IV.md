@@ -1,0 +1,1 @@
+Bishop of Rome and leader of the Papal States from June 816 to his death on 24 January 817. Succeeded by [[Paschal I]].

@@ -1,0 +1,1 @@
+Bishop of Rome and led the Papal States from 999 until his death in 1003. Succeeded by [[John XVII]].

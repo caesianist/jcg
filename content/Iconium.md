@@ -1,0 +1,1 @@
+City in central Turkey, on the southwestern edge of the Central Anatolian Plateau.

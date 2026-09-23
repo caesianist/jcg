@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople (in exile at Nicaea) from 4 January 1223 until his death in June 1240. Succeeded by [[Methodius II]]. 

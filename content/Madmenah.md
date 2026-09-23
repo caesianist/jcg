@@ -1,0 +1,1 @@
+Situated in the northern part of the Kingdom of [[Judah]].

@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1315 to 1319. Succeeded by [[Gerasimus I]].

@@ -1,0 +1,1 @@
+Valley in the lowland of the Shephelah in Israel.

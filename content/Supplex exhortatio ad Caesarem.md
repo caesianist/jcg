@@ -1,0 +1,1 @@
+From [[John Calvin]] in 1543 or so addressing Emperor [[Charles V]] and the imperial estates meeting at Speyer, urging them to undertake the restoration/reformation of the Church, for the text go to [[The Necessity of Reforming the Church]].

@@ -1,0 +1,1 @@
+Archbishop of Constantinople from 25 October 431 until his death on 12 April 434. Succeeded by [[Proclus]].

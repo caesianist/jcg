@@ -1,0 +1,1 @@
+King of Germany (from 1099 to 1125) and Holy Roman Emperor (from 1111 to 1125).

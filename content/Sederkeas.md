@@ -1,0 +1,1 @@
+Vague heavenly manifestation/entity.

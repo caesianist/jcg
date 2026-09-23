@@ -1,0 +1,1 @@
+Traditionally identified with the modern Wadi es-Sarar, which runs through the [[Shephelah]] region of ancient Israel, extending from the Judean hills to the coastal plain near the Mediterranean Sea.

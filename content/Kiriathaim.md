@@ -1,0 +1,1 @@
+City east of the Jordan River in [[Gilead]], allotted to the [[Reubenites]].

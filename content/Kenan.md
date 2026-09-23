@@ -1,0 +1,1 @@
+Mentioned in [[Genesis 5]]. Son of [[Enosh]], grandson of [[Seth]]. Father of [[Mahalalel]] when he was 70. Died at 910 years old.

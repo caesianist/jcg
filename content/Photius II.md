@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 7 October 1929 until his death in 29 December 1935. Succeeded by [[Benjamin I]].

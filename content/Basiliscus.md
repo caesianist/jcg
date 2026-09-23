@@ -1,0 +1,1 @@
+Eastern Roman emperor from 9 January 475 to August 476. 

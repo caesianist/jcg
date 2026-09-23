@@ -1,0 +1,1 @@
+Location near [[Marah]], near the eastern shore of the Red Sea. 

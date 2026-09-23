@@ -1,0 +1,1 @@
+City located in the region of [[Canaan]], specifically within the territory allotted to the tribe of [[Manasseh]]. It is situated in the [[Jezreel]] Valley, near the Kishon River, and is approximately 5 miles southeast of [[Megiddo]]. 

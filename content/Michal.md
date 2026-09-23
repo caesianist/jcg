@@ -1,0 +1,1 @@
+First wife of king [[David]], daughter of king [[Saul]], had no children.

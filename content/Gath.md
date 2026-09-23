@@ -1,0 +1,1 @@
+City located in northeastern [[Philistia]].

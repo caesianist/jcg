@@ -1,0 +1,1 @@
+Historical region in Central Anatolia region, Turkey. It is largely in the provinces of Nevşehir, Kayseri, Aksaray, Kırşehir, Sivas and Niğde. 

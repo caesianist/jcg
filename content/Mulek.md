@@ -1,0 +1,1 @@
+According to Mormonism, the only surviving son of [[Zedekiah]], the last King of [[Judah]], after the Babylonian conquest of Jerusalem. 

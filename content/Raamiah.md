@@ -1,0 +1,1 @@
+One of the leaders who returned from Babylonian exile with [[Zerubbabel]] to rebuild Jerusalem.

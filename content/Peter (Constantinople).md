@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 9 June 654 to 666. He was condemned as a heretic in the [[Third Council of Constantinople]] and was succeeded by [[Thomas II]].

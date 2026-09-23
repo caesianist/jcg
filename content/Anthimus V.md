@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople for thirteen months from 1841 to 1842. Succeeded by [[Germanus IV]].

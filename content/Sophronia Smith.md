@@ -1,0 +1,1 @@
+Sister of [[Joseph Smith Jr.]]

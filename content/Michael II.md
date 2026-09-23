@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople of July 1143 to March 1146. Succeeded by [[Cosmas II]].

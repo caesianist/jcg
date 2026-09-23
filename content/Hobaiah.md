@@ -1,0 +1,1 @@
+Descendants of his were of the exiled Jews.

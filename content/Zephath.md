@@ -1,0 +1,1 @@
+City destroyed by [[Simeon]] and [[Judah]], later becomes [[Hormah]].

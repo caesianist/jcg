@@ -1,0 +1,1 @@
+Located on the northern boundary of Israel. It is probably to be identified with Berothai, an ancient Syrian city ruled by [[Hadadezer]].

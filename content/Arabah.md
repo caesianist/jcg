@@ -1,0 +1,1 @@
+Area travelled through by the [[Israelites]]. Whole or in part to the depression of the Jordan valley, extending from Mount [[Hermon]] to the Gulf of Akabah.

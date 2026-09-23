@@ -1,0 +1,1 @@
+Town east of the Jordan River, allotted to the [[Reubenites]].

@@ -1,0 +1,1 @@
+Greek city in ancient Caria and part of the Dorian Hexapolis, in south-western Asia Minor, modern-day Turkey. 

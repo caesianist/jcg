@@ -1,0 +1,1 @@
+A celestial or heavenly being originating in Ancient Judaism.

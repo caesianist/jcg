@@ -1,0 +1,1 @@
+A city on the eastern frontier of Lower Egypt, represented today by Tell Defenneh, a desert mound lying some 20 miles Southwest from Pelusium (Biblical "[[Sin]]") and a little North of the modern Al-Kantarah ("the bridge"), marking the old caravan route from Egypt to Palestine, Mesopotamia and Assyria. 

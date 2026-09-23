@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople for two terms, from 1289 to 1293 and from 1303 to 1309. Succeeded by [[John XII (Constantinople)]] the first time and [[Nephon I]] the second time.

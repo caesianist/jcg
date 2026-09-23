@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople in 1668–1671. Succeeded by [[Parthenius IV]].

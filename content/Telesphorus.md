@@ -1,0 +1,1 @@
+Bishop of Rome from c. 126 to his death c. 137, succeeded by [[Hyginus]].

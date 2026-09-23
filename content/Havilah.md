@@ -1,0 +1,1 @@
+Refers to a land and people. Land in [[Genesis 2]] and [[Genesis 25]] people in [[Genesis 10]]. The exact location of Havilah is debated, with various scholars suggesting southwest of the Arabian Peninsula or Somaliland.

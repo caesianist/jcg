@@ -1,0 +1,1 @@
+A slave of [[Philemon]], the subject of [[Epistle to Philemon]]. Eastern Orthodox tradition lists this person as the third bishop of Byzantium, succeeded by [[Polycarpus I]].

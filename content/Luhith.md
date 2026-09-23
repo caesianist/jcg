@@ -1,0 +1,1 @@
+The name "Luhith" is derived from a root that suggests the idea of "tablets" or "slabs," a slope/ascent located in [[Moab]].

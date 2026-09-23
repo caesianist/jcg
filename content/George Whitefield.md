@@ -1,0 +1,1 @@
+Born December 27th, 1714, died September 30th, 1770. English Anglican priest and Itinerant preacher who was one of the founders of Methodism and the evangelical movement, colleague and friend of [[John Wesley]] and [[Charles Wesley]]. 

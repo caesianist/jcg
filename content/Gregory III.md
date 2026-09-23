@@ -1,0 +1,1 @@
+Bishop of Rome from 11 February 731 to his death on 28 November 741. Succeeded by [[Zachary]].

@@ -1,0 +1,1 @@
+The name "Hazar-susim" is derived from Hebrew, where "Hazar" means "village" or "settlement," and "susim" means "horses." Thus, Hazar-susim can be translated as "village of horses" or "settlement of horses." One of the towns allotted to the tribe of [[Simeon]].

@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 20 December 638 to 29 September 641, and again from 9 January to 1 June 654. Succeeded by [[Paul II (Constantinople)]] the first time and [[Peter (Constantinople)]] the second time.

@@ -1,0 +1,1 @@
+Son of [[Abraham]], father of [[Sheba]] and [[Dedan]].

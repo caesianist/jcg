@@ -1,0 +1,1 @@
+Area in the highlands of central Anatolia, roughly corresponding to the provinces of Ankara and Eskişehir in modern Turkey.

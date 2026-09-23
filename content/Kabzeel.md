@@ -1,0 +1,1 @@
+Birthplace of [[Benaiah]], the most remote city of [[Judah]]; located in southern Judah on the border of [[Edom]].

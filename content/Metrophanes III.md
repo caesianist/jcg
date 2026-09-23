@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople two times, from 1565 to 1572 and from 1579 to 1580. Succeeded by [[Jeremias II]] both times.

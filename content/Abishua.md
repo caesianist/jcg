@@ -1,0 +1,1 @@
+High priest and son of [[Phinehas]], father of [[Bukki]].

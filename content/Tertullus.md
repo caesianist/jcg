@@ -1,0 +1,1 @@
+Orator or lawyer who was employed by the Jewish leaders to state their case against the apostle [[Paul]] in the presence of [[Felix]].

@@ -1,0 +1,1 @@
+The primary purpose of the House of the Forest of Lebanon was to serve as an armory and a treasury. It housed [[Solomon]]'s vast collection of shields and weapons.

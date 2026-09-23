@@ -1,0 +1,1 @@
+Also known simply as Puah. Son of [[Issachar]].

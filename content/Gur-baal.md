@@ -1,0 +1,1 @@
+Place where some Arabs lived which God helped king [[Uzziah]] against them.

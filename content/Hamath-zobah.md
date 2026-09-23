@@ -1,0 +1,1 @@
+Region in northern Syria that [[Solomon]] captured, combining the territories of [[Hamath]] and [[Zobah]].

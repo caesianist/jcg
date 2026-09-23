@@ -1,0 +1,1 @@
+Father of [[Emma Hale]], born March 21st, 1763, died January 11th, 1839.

@@ -1,0 +1,1 @@
+One of the officials in King [[David]]'s administration. 

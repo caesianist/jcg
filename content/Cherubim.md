@@ -1,0 +1,1 @@
+One type of supernatural being in the Abrahamic religions. The numerous depictions of cherubim assign to them many different roles, such as protecting the entrance of the Garden of [[Eden]], they are usually depicted as these angelic beings.

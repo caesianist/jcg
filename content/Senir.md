@@ -1,0 +1,1 @@
+Name of [[Hermon]] given by the [[Amorites]].

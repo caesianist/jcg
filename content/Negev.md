@@ -1,0 +1,1 @@
+Also known as [[Negeb]]. Desert and semidesert area in southern Israel.

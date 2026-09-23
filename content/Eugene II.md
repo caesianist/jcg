@@ -1,0 +1,1 @@
+Bishop of Rome and leader of the Papal States from 6 June 824 until his death 27 August 827. Succeeded by [[Valentine]].

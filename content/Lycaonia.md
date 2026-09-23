@@ -1,0 +1,1 @@
+Region in the interior of Asia Minor (modern-day Turkey), north of the Taurus Mountains. It was bounded on the east by [[Cappadocia]], on the north by [[Galatia]], on the west by [[Phrygia]] and [[Pisidia]].

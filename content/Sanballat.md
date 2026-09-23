@@ -1,0 +1,1 @@
+Samarian leader, official of the Achaemenid Empire, and contemporary of [[Nehemiah]], the governor of [[Yehud]] province, who lived in the mid-to-late 5th century BC. 

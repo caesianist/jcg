@@ -1,0 +1,1 @@
+Bishop of Rome and nominal ruler of the Papal States from 16 May 1003 to 6 November 1003. Succeeded by [[John XVIII]].

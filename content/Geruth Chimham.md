@@ -1,0 +1,1 @@
+The name means "the lodging place of Chimham" or "the habitation of Chimham." 

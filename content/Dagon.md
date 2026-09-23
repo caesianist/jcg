@@ -1,0 +1,1 @@
+A god worshipped in ancient Syria, across the middle of the Euphrates, with primary temples located in Tuttul and Terqa. In settlements situated in the upper Euphrates area, he was regarded as the "father of gods" as well as a lord of the land, a god of prosperity, and a source of royal legitimacy. 

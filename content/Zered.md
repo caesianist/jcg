@@ -1,0 +1,1 @@
+Camping place of the [[Israelites]] near [[Iye-abarim]].

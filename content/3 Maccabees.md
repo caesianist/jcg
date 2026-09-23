@@ -1,0 +1,7 @@
+[[3 Maccabees 1]]
+[[3 Maccabees 2]]
+[[3 Maccabees 3]]
+[[3 Maccabees 4]]
+[[3 Maccabees 5]]
+[[3 Maccabees 6]]
+[[3 Maccabees 7]]

@@ -1,0 +1,1 @@
+Bishop of Rome and ruler of the Papal States for three periods between October 1032 and July 1048 (1032–1044; 1045; 1047–1048). Succeeded by [[Sylvester III]],  [[Gregory VI]], and [[Damasus II]] respectively.

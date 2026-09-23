@@ -1,0 +1,1 @@
+City situated "on the hill of the valley" within the territory assigned to the [[Reubenites]].

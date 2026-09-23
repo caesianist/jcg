@@ -1,0 +1,8 @@
+CHAPTER L
+How this present Time is a Paradise and outer Court of Heaven, and how therein there is only one Tree forbidden, that is, Self-will.
+
+ 
+
+What is Paradise? All things that are; for all are goodly and pleasant, and therefore may fitly be called a Paradise. It is said also, that Paradise is an outer court of Heaven. Even so this world is verily an outer court of the Eternal, or of Eternity, and specially whatever in Time, or any temporal things or creatures, manifesteth or remindeth us of God or Eternity; for the creatures are a guide and a path unto God and Eternity. Thus this world is an outer court of Eternity, and therefore it may well be called a Paradise, for it is such in truth. And in this Paradise, all things are lawful, save one tree and the fruits thereof. That is to say: of all things that are, nothing is forbidden and nothing is contrary to God but one thing only: that is, Self-will, or to will otherwise than as the Eternal Will would have it. Remember this. For God saith to [[Adam]], that is, to every man, “Whatever thou art, or doest, or leavest undone, or whatever cometh to pass, is all lawful and not forbidden if it be not done from or according to thy will, but for the sake of and according to My will. But all that is done from thine own Will is contrary to the Eternal Will.”
+
+It is not that every work which is thus wrought is in itself contrary to the Eternal Will, but in so far as it is wrought from a different will, or otherwise than from the Eternal and Divine Will.

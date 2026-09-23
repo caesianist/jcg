@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1801 to 1806 and 1808 to 1809. Succeeded by [[Gregory V (Constantinople)]] and [[Jeremias IV]].

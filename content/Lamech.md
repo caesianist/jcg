@@ -1,0 +1,1 @@
+Mentioned in [[Genesis 4]] and [[Genesis 5]], but in the 2nd case, referring to a different Lamech. Seventh generation from [[Adam]] and father of [[Jabal]], the first breeder of livestock, [[Tubal-cain]], the first metalworker, [[Jubal]], the first musician, and [[Naamah]]. 

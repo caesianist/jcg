@@ -1,0 +1,1 @@
+Member of twelfth tribe in [[Letter of Aristeas]].

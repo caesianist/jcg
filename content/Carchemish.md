@@ -1,0 +1,1 @@
+Area near Egypt that king [[Neco]] attacked, it is also near the Euphrates.

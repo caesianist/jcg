@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 24 January 1118 to his death in 1119. Succeeded by [[Callixtus II]].

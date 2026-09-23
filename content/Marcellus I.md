@@ -1,0 +1,1 @@
+Bishop of Rome from May or June 308 to his death on 16 January 309. Succeeded by [[Eusebius]].

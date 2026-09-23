@@ -1,0 +1,1 @@
+Region of [[Canaan]] on the south bank of the Lakhish River, was a city of the [[Amorites]] ruled by [[Japhia]] during [[Joshua]]'s conquest.

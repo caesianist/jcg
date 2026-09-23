@@ -1,0 +1,1 @@
+One of the captains of the bodyguards of [[Ptolemy Philadelphus]] (283–246 BC), king of Egypt. Citizen of [[Tarentum]].

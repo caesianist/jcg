@@ -1,0 +1,1 @@
+An ancient Levantine kingdom whose territory is today located in southern Jordan. The land is mountainous and lies alongside much of the eastern shore of the Dead Sea. The inhabitants are the [[Moabites]], who were deemed the incestuous product of [[Lot]] and an unnamed daughter of his. Moab was often in conflict with [[Israelites]].

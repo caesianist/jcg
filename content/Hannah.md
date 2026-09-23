@@ -1,0 +1,1 @@
+One of the wives of [[Elkanah]], she did not initially have children but the other did, but later she prays to God and conceives [[Samuel]].

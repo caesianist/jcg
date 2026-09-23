@@ -1,0 +1,1 @@
+Bishop of Byzantium during the second half of the 2nd century AD. The date when he became the bishop of Byzantium is not known for certain but is most likely somewhere between 166 and 167. Additionally, the length of his term is not known, but it is believed to be three years. Succeeded by [[Pertinax]].

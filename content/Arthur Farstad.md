@@ -1,0 +1,1 @@
+Served as General Editor of the [[New King James Version]], and assisted in [[Holman Christian Standard Bible]].

@@ -1,0 +1,1 @@
+ King of Jerusalem at the time of the [[Israelites]] invading [[Canaan]] around 1350 BCE.

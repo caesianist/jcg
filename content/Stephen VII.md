@@ -1,0 +1,1 @@
+Bishop of Rome and nominal ruler of the Papal States from February 929 to his death in 931. Succeeded by [[John XI]].

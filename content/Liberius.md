@@ -1,0 +1,1 @@
+Bishop of Rome from 17 May 352 until his death on 24 September 366, succeeded by [[Damasus I]].

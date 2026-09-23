@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1891 until his resignation in 1894. Succeeded by [[Anthimus VII]].

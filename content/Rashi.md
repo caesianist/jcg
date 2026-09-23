@@ -1,0 +1,1 @@
+Born February 22nd, 1040, died July 13th, 1105.  French rabbi and commentator who authored comprehensive commentaries on the Talmud and Hebrew Bible.

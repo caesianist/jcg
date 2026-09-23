@@ -1,0 +1,1 @@
+Eastern part of the territory allotted to the tribe of [[Ephraim]]. 

@@ -1,0 +1,1 @@
+A people who occupied an area southeast of the Dead Sea on the eastern border of [[Edom]].

@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople in 1733–1734. Succeeded by [[Neophytus VI]].

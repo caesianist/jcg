@@ -1,0 +1,1 @@
+Wife of [[Abraham]], mother of [[Zimran]], [[Jokshan]], [[Medan]], [[Midian]], [[Ishbak]], and [[Shuah]].

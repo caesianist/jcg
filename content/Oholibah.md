@@ -1,0 +1,1 @@
+Pejorative personification given by the prophet Ezekiel to the cities of Samaria in the Kingdom of Israel and Jerusalem in the kingdom of [[Judah]], sister to [[Oholah]]. There is a pun in these names in the Hebrew. Oholah means "her tent", and Oholibah means "my tent is in her."

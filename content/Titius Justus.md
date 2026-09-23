@@ -1,0 +1,1 @@
+Titius Justus is described as a "worshiper of God," a term often used to refer to Gentiles who were sympathetic to Judaism and attended synagogue services without fully converting to Judaism. Citizen of [[Corinth]].

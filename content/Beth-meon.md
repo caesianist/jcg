@@ -1,0 +1,1 @@
+Name means "house of habitation", town in [[Moab]].

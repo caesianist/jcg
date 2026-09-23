@@ -1,0 +1,1 @@
+Jew called a "chief priest" although whether he was a chief priest is disputed by some writers. He had seven sons who attempted to exorcise a demon from a man in the town of [[Ephesus]] by using the name of [[Jesus]] as an invocation. 

@@ -1,0 +1,1 @@
+Traditionally, it is identified with the modern site of et-Tell, located just east of [[Bethel]] in the West Bank.

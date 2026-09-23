@@ -1,0 +1,1 @@
+A group which engaged in conflict with [[Judah]] and his companions at the waters of [[Chuzeba]], though they ultimately suffered defeat in this encounter.

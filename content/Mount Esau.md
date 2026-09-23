@@ -1,0 +1,1 @@
+Term used either synonymous with [[Edom]] or a region within Edom.

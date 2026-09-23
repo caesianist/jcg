@@ -1,0 +1,1 @@
+Bible teacher, one of the influential figures among the original Plymouth Brethren and the founder of the Exclusive Brethren. He is considered to be the father of modern dispensationalism and futurism. Pre-tribulation rapture theology was popularized extensively in the 1830s by Darby and the Plymouth Brethren, translator of the [[Darby Bible]].

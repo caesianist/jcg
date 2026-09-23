@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1151 until 1153. Succeeded by [[Neophytus I]].

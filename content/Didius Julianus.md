@@ -1,0 +1,1 @@
+Roman emperor from March to June 193. Succeeded by [[Septimius Severus]].

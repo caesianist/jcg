@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from January 1936, until his death to February 1946. Succeeded by [[Maximus V]].

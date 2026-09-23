@@ -1,0 +1,1 @@
+One of the towns whose inhabitants returned from the Babylonian exile.

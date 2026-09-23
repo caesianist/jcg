@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 1305 until his death on 20 April 1314. Succeeded by [[John XXII]].

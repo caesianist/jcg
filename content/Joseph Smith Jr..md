@@ -1,0 +1,1 @@
+Born December 23rd, 1805 and died June 27th, 1844. Political leader and the founder of Mormonism and the Latter Day Saint movement. Published the [[Book of Mormon]] at the age of 24.

@@ -1,0 +1,1 @@
+One of the northern cities of Israel attacked by [[Ben-Hadad I]].

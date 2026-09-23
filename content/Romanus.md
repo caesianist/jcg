@@ -1,0 +1,1 @@
+Bishop of Rome from August to November 897. Succeeded by [[Theodore II]].

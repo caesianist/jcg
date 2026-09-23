@@ -1,0 +1,1 @@
+Patriarch of Constantinople (12 April 582 – 2 September 595). He was the first to assume the title Ecumenical Patriarch. Succeeded by [[Cyriacus II]].

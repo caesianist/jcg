@@ -1,0 +1,1 @@
+Area inhabited by refugees who are [[Moabites]].

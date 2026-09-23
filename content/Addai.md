@@ -1,0 +1,1 @@
+An apostle/disciple traditionally identified with [[Thaddeus]], associated with the early Christian tradition of [[Edessa]].

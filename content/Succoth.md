@@ -1,0 +1,1 @@
+A city which was located probably east of the Jordan.

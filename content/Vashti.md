@@ -1,0 +1,1 @@
+Queen of Persia and the first wife of Persian king [[Ahasuerus]] in the [[Book of Esther]].

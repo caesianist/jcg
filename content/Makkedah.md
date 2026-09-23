@@ -1,0 +1,1 @@
+City in the land of [[Canaan]]. near [[Shephelah]].

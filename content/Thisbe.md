@@ -1,0 +1,1 @@
+South of [[Kedesh]] in Upper Galilee, above [[Hazor]], some distance to the west, north of [[Shephat]].

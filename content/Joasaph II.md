@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1556 to 1565. Succeeded by [[Metrophanes III]].

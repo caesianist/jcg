@@ -1,0 +1,1 @@
+City that [[Zebulun]] attempted to take back from the [[Canaanites]] but failed.

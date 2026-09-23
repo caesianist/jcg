@@ -1,0 +1,1 @@
+A person, subsequently venerated as a saint, to whom is traditionally ascribed the authorship of the [[Gospel of Mark]]. According to Coptic Christian tradition he was a Roman African from Ancient Libya, although this belief is not shared by other denominations. Most modern scholars agree that the Gospel of Mark is anonymous, though the topic remains contentious among experts.

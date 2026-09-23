@@ -1,0 +1,1 @@
+Last king of the [[Nephites]], son of King [[Benjamin]], who consecrated him ruler and gave him charge over the kingdom. Father of [[Aaron]], [[Ammon]], [[Himni]], and father of [[Omner]].

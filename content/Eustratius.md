@@ -1,0 +1,1 @@
+ Ecumenical Patriarch of Constantinople between 8 May 1081 and July 1084. Succeeded by [[Nicholas III (Constantinople)]].

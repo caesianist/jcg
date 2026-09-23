@@ -1,0 +1,1 @@
+The term "Shibboleth" originates from the Hebrew word שִׁבֹּלֶת, which can mean "ear of grain" or "stream." It was used as a linguistic test to distinguish between the [[Ephraimites]] and the [[Gileadites]], where the Ephraimites would say "Sibboleth."

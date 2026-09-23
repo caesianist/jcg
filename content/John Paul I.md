@@ -1,0 +1,1 @@
+Head of the Catholic Church and sovereign of Vatican City from 26 August 1978 until his death 33 days later. Succeeded by [[John Paul II]].

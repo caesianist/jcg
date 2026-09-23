@@ -1,0 +1,1 @@
+Head of the Catholic Church and leader of the Papal States from 23 May 1555 to his death, in August 1559. Succeeded by [[Pius IV]].

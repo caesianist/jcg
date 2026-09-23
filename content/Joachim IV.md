@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1884 to 1886. Succeeded by [[Dionysius V]]. 

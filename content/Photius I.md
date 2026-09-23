@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 858 to 867 and from 877 to 886. Deposed by the Catholic [[Fourth Council of Constantinople]] but the Eastern Orthodox sought reinstatement. Succeeded by [[Stephen I (Constantinople)]].

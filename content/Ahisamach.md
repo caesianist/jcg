@@ -1,0 +1,1 @@
+Father of [[Oholiab]], was of the tribe of [[Dan]].

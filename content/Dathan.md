@@ -1,0 +1,1 @@
+Son of [[Eliab]] who along with others, rebelled against [[Moses]], eventually was sent to [[Sheol]].

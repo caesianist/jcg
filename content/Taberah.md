@@ -1,0 +1,1 @@
+One of the locations the [[Israelites]] passed through, the place received its name, which means the place of burning.

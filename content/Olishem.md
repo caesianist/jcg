@@ -1,0 +1,1 @@
+A location in [[Abraham 1]]]. It isn’t clear from the text whether the plain itself was Olishem, or whether Olishem was some city or region in the area to which the plain was adjacent, or whether the plain takes its name from a major city on the plain. In was near [[Ur of the Chaldees]].

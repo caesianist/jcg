@@ -1,0 +1,1 @@
+Greek name of a Levantine region north of Galilee during the Late Hellenistic and early Roman periods. 

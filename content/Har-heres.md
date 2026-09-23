@@ -1,0 +1,1 @@
+Translates to "Mount of the Sun" or "Mountain of the Sun," indicating its possible significance in ancient times, potentially as a site of sun worship or a place associated with solar deities. This city was inhabited by [[Amorites]] but later was allotted to the tribe of [[Dan]].

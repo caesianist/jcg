@@ -1,0 +1,1 @@
+A Roman emperor, ruling from AD 41 until his death in AD 54. Succeeded by [[Nero]].

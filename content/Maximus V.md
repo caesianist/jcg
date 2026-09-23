@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from February 1946 until his resignation in October 1948. Succeeded by [[Athenagoras I]].

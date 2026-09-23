@@ -1,0 +1,1 @@
+According to some scholars the ancient city of [[Magdala]].

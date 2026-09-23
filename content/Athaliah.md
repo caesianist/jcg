@@ -1,0 +1,1 @@
+Debatably the daughter of [[Omri]], but possibly of [[Ahab]], and debatably her mother is [[Jezebel]], was the queen consort of [[Judah]] then later queen regnant from around 841 to 835 BC, preceded by [[Ahaziah]] and succeeded by [[Joash]].

@@ -1,0 +1,1 @@
+Bishop of Rome and nominal ruler of the Papal States from 14 July 939 to his death in October 942. Succeeded by [[Marinus II]].

@@ -1,0 +1,1 @@
+Situated in the Valley of Lebanon, at the base of Mount [[Hermon]].

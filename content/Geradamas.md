@@ -1,0 +1,1 @@
+Term for the archetypal [[Adam]] in some Gnostic texts. Also known as [[Pigeradamas]].

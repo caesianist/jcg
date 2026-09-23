@@ -1,0 +1,1 @@
+Roman emperor from 69 to 79. Succeeded by [[Titus (Emperor)]].

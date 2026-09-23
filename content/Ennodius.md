@@ -1,0 +1,1 @@
+Born 473/474, died July 17th, 521. Bishop of Pavia in 514, and a Latin rhetorician and poet. 

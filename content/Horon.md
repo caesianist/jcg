@@ -1,0 +1,1 @@
+Egyptian god worshiped in Giza and [[Canaan]], associated with magic and exorcisms.

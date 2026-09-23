@@ -1,0 +1,1 @@
+The seventeenth king of Israel and the son of [[Menahem]], succeeded by [[Pekah]].

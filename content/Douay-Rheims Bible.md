@@ -1,0 +1,1 @@
+In response to Protestant challenges to their authority, the Roman Catholic church published an English translation from Latin manuscripts. Scholars from the English College at Douay, France created the work, which was later published in Rheims, France. The New Testament portion was published in 1582, with the Old Testament coming in two parts in 1609-1610.

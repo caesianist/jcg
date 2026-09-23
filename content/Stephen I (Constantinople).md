@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 886 to 893. Succeeded by [[Antony II]].

@@ -1,0 +1,1 @@
+Title used for those known for their wisdom, often linked to the tribe of [[Judah]], although some traditions suggest a possible connection to the tribe of [[Levi]] due to their involvement in temple worship and music.

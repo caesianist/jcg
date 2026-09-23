@@ -1,0 +1,1 @@
+Mentioned in [[Genesis 4]] and [[Genesis 5]]. Grandson of [[Cain]] and son of [[Enoch]].

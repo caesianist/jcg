@@ -1,0 +1,1 @@
+The name given to the first entity to arise from God in the literature of the classic Gnostics, known as a "she" and "her."

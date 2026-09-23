@@ -1,0 +1,1 @@
+Clan of the tribe of [[Benjamin]] and the clan of the family of king [[Saul]].

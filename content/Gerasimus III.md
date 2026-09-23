@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1794 to 1797. Succeeded by [[Gregory V (Constantinople)]].

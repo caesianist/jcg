@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 11 July 1276 to his death on 18 August 1276. Succeeded by [[John XXI]].

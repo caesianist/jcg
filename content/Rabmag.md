@@ -1,0 +1,1 @@
+A "chief physician" attached to the king of Babylon, can likely refer to [[Nergal-sharezer]] however.

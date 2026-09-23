@@ -1,0 +1,1 @@
+Descendants of [[Korah]]. Also known as [[Korhites]].

@@ -1,0 +1,1 @@
+Released in two parts: the New Testament in 1881, and the Old Testament in 1885. The translation team’s goal was “to adapt the [[King James Version]] to the present state of the English language without changing the idiom and vocabulary,” and “to adapt it to the present standard of Biblical scholarship.” 

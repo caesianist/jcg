@@ -1,0 +1,1 @@
+Bishop of Rome from 676 to his death on 11 April 678. Succeeded by [[Agatho]].

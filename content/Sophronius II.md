@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople during the period 1775–1780. Succeeded by [[Gabriel IV]].

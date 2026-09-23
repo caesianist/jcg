@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople in the periods 1835–1840 and 1867–1871. Succeeded by [[Anthimus IV]] and [[Anthimus VI]].

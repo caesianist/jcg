@@ -1,0 +1,1 @@
+An [[Archendekta]] over impulses to action in [[Apocryphon of John]].

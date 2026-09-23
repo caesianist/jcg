@@ -1,0 +1,1 @@
+Alleged disciple and interpreter of [[Peter the Apostle]], claimed by [[Basilides]] as his teacher.

@@ -1,0 +1,1 @@
+Son of [[Bela]], founder of the [[Ahohites]].

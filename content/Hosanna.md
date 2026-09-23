@@ -1,0 +1,1 @@
+Aramaic liturgical word in Judaism and Christianity. In Judaism it is a cry expressing an appeal for God’s help. In Christianity it is a cry of praise.

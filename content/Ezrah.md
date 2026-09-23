@@ -1,0 +1,1 @@
+Father of [[Jether]], [[Mered]], [[Epher]], and [[Jalon]].

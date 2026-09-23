@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople for two months in 1623. Succeeded by [[Anthimus II]].

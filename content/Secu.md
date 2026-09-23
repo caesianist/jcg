@@ -1,0 +1,1 @@
+Location near [[Ramah]], was a home of the prophet [[Samuel]]. The mention of a "great cistern" where Secu is mentioned suggests that Secu was a place with notable water resources.

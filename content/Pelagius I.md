@@ -1,0 +1,1 @@
+Bishop of Rome from 16 April 556 to his death on 3 March 561. Succeeded by [[John III]].

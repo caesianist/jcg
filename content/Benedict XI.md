@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 22 October 1303 to his death on 7 July 1304. Succeeded by [[Clement V]].

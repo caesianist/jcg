@@ -1,0 +1,1 @@
+The third emperor of the Neo-Babylonian Empire, ruling from 562 BCE until his overthrow and murder in 560 BCE, succeeded by [[Neriglissar]].

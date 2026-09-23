@@ -1,0 +1,1 @@
+Head of the Catholic Church and leader of the Papal States from 9 August 1471 until his death in 1484. Succeeded by [[Innocent VIII]].

@@ -1,0 +1,1 @@
+Father of [[Nahum]], son of [[Naggai]].

@@ -1,0 +1,1 @@
+A commander of an army of [[Canaanites]] of king [[Jabin]] in [[Hazor]].

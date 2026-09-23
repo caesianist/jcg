@@ -1,0 +1,1 @@
+City on the boundary of [[Ephraim]] and [[Benjamin]] between [[Bethel]] and [[Beth-horon]].

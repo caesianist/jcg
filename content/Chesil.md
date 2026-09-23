@@ -1,0 +1,1 @@
+City in [[Negev]] of [[Judah]].

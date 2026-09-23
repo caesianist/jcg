@@ -1,0 +1,1 @@
+Roman theologian and statesman who served as Bishop of Milan from 374 to 397. Helped convert [[Augustine of Hippo]] to Christianity and was a friend of [[Origen of Alexandria]]. Succeeded by [[Simplician]].

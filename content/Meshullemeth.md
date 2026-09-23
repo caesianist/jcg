@@ -1,0 +1,1 @@
+Mother of [[Amon]], daughter of [[Haruz]]. Was born in [[Jotbah]].

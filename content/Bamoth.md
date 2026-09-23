@@ -1,0 +1,1 @@
+A camping place of the [[Israelites]], near [[Nahaliel]].

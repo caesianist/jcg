@@ -1,0 +1,1 @@
+One of the kings of [[Midian]] during the conquest by [[Gideon]].

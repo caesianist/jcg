@@ -1,0 +1,1 @@
+Christian apologist and philosopher. Justin also indicated that historical manifestations of the Logos predated Christ's incarnation, and that many historical Greek philosophers (including Socrates and Plato) were unknowing Christians. Justin was martyred, along with some of his students, during the reign of Marcus Aurelius around the year 165.

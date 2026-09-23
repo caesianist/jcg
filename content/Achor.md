@@ -1,0 +1,1 @@
+Near [[Jericho]] and [[Ai]].

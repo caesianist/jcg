@@ -1,0 +1,1 @@
+Son of [[Nahor II]] and [[Reumah]].

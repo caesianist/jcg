@@ -1,0 +1,1 @@
+The Hebrew prophet who led the [[Israelites]] out of slavery in the [[Exodus]] from Egypt. Born in [[Goshen]], died in [[Moab]]. Husband of [[Zipporah]], father of [[Gershom]] and [[Eliezer]]. Son of [[Amram]] and [[Jochebed]], brother to [[Miriam]] and [[Aaron]].

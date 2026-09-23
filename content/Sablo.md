@@ -1,0 +1,1 @@
+A Sethian Gnostic archon. He is generally portrayed as one of the rulers/archons of the cosmic realm. The name is sometimes understood as a Gnostic adaptation of [[Sabaoth]], the biblical Hebrew title meaning roughly “hosts/armies.” However, Sablo and Sabaoth aren't necessarily identical figures in every Gnostic text.

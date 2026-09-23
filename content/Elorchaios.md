@@ -1,0 +1,1 @@
+Figure identified with the Great Light itself, and with the heavenly place/origin from which the revealer comes.

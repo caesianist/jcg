@@ -1,0 +1,1 @@
+Identified with the modern site of Yavne, city in [[Shephelah]], the lowland region between the coastal plain and the Judean hills. 

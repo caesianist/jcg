@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 29 June 1662 to 21 October 1665. Succeeded by [[Parthenius IV]].

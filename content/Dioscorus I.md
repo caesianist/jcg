@@ -1,0 +1,1 @@
+Pope of Alexandria and patriarch of the See of St. Mark who was deposed by the [[Council of Chalcedon]] in 451. 

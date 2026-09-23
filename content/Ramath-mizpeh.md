@@ -1,0 +1,1 @@
+Location within the territory allotted to the [[Gadites]]. It is situated in the region east of the Jordan River.

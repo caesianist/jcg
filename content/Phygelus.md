@@ -1,0 +1,1 @@
+Asian citizen who along with [[Hermogenes]] turned away from the Apostle Paul from his ministry. Nothing else is known about Phygelus.

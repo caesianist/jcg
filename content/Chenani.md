@@ -1,0 +1,1 @@
+Listed among the [[Levites]] who cried to the Lord.

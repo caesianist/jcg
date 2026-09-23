@@ -1,0 +1,1 @@
+Arab tribe which lived on the border of the kingdom of [[Judah]], the Meunites paid a tax to king [[Uzziah]].

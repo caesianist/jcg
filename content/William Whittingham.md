@@ -1,0 +1,1 @@
+Translator of the [[Geneva Bible]].

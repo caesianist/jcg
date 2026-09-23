@@ -1,0 +1,1 @@
+Head of the Catholic Church and leader of the Papal States from 9 January 1522 until his death on 14 September 1523. Succeeded by [[Clement VII]].

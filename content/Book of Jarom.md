@@ -1,0 +1,1 @@
+Attributed to [[Jarom]] who was son of [[Enos (Mormonism)]].

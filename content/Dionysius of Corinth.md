@@ -1,0 +1,1 @@
+Bishop of Corinth] circa AD 171, not much is known of him but the date is known given him writing to Pope [[Soter]]. 

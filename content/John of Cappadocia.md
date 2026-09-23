@@ -1,0 +1,1 @@
+Patriarch of Constantinople in 518–520. Succeeded by [[Epiphanius]].

@@ -1,0 +1,1 @@
+Bishop of Rome and nominal ruler of the Papal States from 23 June 964 to 1 March 965. Succeeded by [[Leo VIII]].

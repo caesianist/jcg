@@ -1,0 +1,1 @@
+City given to the [[Levites]] from the tribe of [[Naphtali]].

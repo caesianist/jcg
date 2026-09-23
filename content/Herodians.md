@@ -1,0 +1,1 @@
+One of the groups who opposed [[Jesus]] like the Pharisees, as per the name, were likely supporters of [[Herod]].

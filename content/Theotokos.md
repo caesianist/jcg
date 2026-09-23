@@ -1,0 +1,1 @@
+Title for the Virgin [[Mary]] meaning God-bearer or Mother of God.

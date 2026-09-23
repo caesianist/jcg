@@ -1,0 +1,1 @@
+Also known as [[Abel-shittim]], camping place of the [[Israelites]].

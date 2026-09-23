@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople in 1084–1111. Succeeded by [[John IX (Constantinople)]].

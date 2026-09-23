@@ -1,0 +1,1 @@
+Theologian and humanistic scholar born in southern Italy. He was a scholar and clergyman of the 14th century, as well as a humanist, philologist and theologian. When [[Gregory Palamas]] defended Hesychasm (the Eastern Orthodox Church's mystical teaching on prayer), Barlaam accused him of heresy. 

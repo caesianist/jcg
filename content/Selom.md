@@ -1,0 +1,1 @@
+Allies of [[Jobel]] who engaged with a conflict with [[Judah]].

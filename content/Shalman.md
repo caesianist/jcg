@@ -1,0 +1,1 @@
+An individual, presumably a king, who sacked the city of [[Beth-arbel]]. He is usually identified with the Assyrian kings [[Shalmaneser II]] or [[Shalmaneser IV]].

@@ -1,0 +1,1 @@
+Town in [[Gilead]] not far from [[Mahanaim]], north of the [[Jabbok]] river, also the home of [[Machir]].

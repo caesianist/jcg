@@ -1,0 +1,1 @@
+Descendants of [[Canaan]] thought to have inhabited Sumur, a city near the coast of present-day Syria, although biblical exegete [[Saadia Gaon]] held that they formerly inhabited the Syrian town of Homs.

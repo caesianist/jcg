@@ -1,0 +1,1 @@
+Can be translated to mean "friend of the king" or "king's official," one of the people sent to [[Bethel]].

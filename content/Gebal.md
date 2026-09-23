@@ -1,0 +1,1 @@
+An ancient city in the Keserwan-Jbeil Governorate of Lebanon which is now associated with Byblos.

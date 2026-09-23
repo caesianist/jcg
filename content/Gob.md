@@ -1,0 +1,1 @@
+City in the coastal plain of [[Canaan]] of the [[Philistines]].

@@ -1,0 +1,1 @@
+Known also as Qadesh or Cades, occurs several times in the Hebrew Bible, describing a site or sites located south of, or at the southern border of [[Canaan]] and the Kingdom of [[Judah]].

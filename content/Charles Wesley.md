@@ -1,0 +1,1 @@
+Born December 18th, 1707, died March 29th, 1788. English Anglican cleric and a principal leader of the Methodist movement. Wesley was a prolific hymnwriter who wrote over 6,500 hymns during his lifetime. Brother to [[John Wesley]].

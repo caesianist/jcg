@@ -1,0 +1,1 @@
+God of the sky and thunder, and king of the gods. Jupiter was the chief deity of Roman state religion throughout the Republican and Imperial eras, until Christianity became the dominant religion of the Empire. Father of [[Hercules]].

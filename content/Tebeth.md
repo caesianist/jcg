@@ -1,0 +1,1 @@
+10th month of the Hebrew calendar, falling in the winter season (roughly December–January in the Gregorian calendar)

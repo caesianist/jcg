@@ -1,0 +1,1 @@
+A high priest during some time between 751 and 740 BCE, son of [[Johanan]].

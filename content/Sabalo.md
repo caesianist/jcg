@@ -1,0 +1,1 @@
+Activator of the womb in [[Apocryphon of John]].

@@ -1,0 +1,1 @@
+Area within/around [[Shechem]].

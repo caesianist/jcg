@@ -1,0 +1,1 @@
+Father of [[Ptolemy II]], general, historian, and successor of Alexander the Great who went on to found the Ptolemaic Kingdom centered in Egypt. Ptolemy was king and pharaoh of Ptolemaic Egypt from 305/304 BC to his death in 282 BC.

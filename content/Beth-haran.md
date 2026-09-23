@@ -1,0 +1,1 @@
+City allotted to the [[Gadites]], near the Jordan valley.

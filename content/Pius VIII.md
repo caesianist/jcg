@@ -1,0 +1,1 @@
+Head of the Catholic Church and leader of the Papal States from 31 March 1829 to his death in November 1830. Succeeded by [[Gregory XVI]].

@@ -1,0 +1,6 @@
+CHAPTER XX
+How, seeing that the Life of Christ is most bitter to Nature and Self, Nature will have none of it, and chooseth a false careless Life, as is most convenient to her.
+
+ 
+
+Now, since the life of Christ is every way most bitter to nature and the Self and the Me (for in the true life of Christ, the Self and the Me and nature must be forsaken and lost, and die altogether), therefore, in each of us, nature hath a horror of it, and thinketh it evil and unjust and a folly, and graspeth after such a life as shall be most comfortable and pleasant to herself, and saith, and believeth also in her blindness, that such a life is the best possible. Now, nothing is so comfortable and pleasant to nature, as a free, careless way of life, therefore she clingeth to that, and taketh enjoyment in herself and her own powers, and looketh only to her own peace and comfort and the like. And this happeneth most of all, where there are high natural gifts of reason, for that soareth upwards in its own light and by its own power, till at last it cometh to think itself the true Eternal Light, and giveth itself out as such, and is thus deceived in itself, and deceiveth other people along with it, who know no better, and also are thereunto inclined.

@@ -1,0 +1,1 @@
+City-state (polis) on the Isthmus of Corinth, the narrow stretch of land that joins the Peloponnese peninsula to mainland Greece, roughly halfway between Athens and Sparta. Inhabitants are known as [[Corinthians]].

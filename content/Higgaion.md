@@ -1,0 +1,1 @@
+Means either “meditation/musing” or a musical notation/solemn instrumental sound/

@@ -1,0 +1,1 @@
+Patriarch of Constantinople (496–511). Succeeded by [[Timothy I]].

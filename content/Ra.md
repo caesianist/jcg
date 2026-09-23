@@ -1,0 +1,1 @@
+The ancient Egyptian deity of the Sun. By the Fifth Dynasty, in the 25th and 24th centuries BC, Ra had become one of the most important gods in ancient Egyptian religion, identified primarily with the noon-day Sun. 

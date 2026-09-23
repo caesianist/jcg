@@ -1,0 +1,1 @@
+A synod of set representative bishops of the universally recognised autocephalous local churches of the Eastern Orthodox Church held in Kolymvari, Crete. The Council sat from 19 to 26 June 2016. It reaffirmed things such as the authority of the [[Fifth Council of Constantinople]].

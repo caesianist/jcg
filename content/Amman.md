@@ -1,0 +1,1 @@
+A counselor/adviser of Pharaoh, involved in opposing [[Moses]] and the [[Israelites]].

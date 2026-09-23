@@ -1,0 +1,1 @@
+Member of the [[Jebusites]], owned the threshing floor which [[David]] purchased and used as the site for assembling an altar to God. 

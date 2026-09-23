@@ -1,0 +1,1 @@
+King of the Achaemenid Empire from from 359 to 338 BCE, succeeded by [[Artaxerxes IV]].

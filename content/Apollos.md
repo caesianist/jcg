@@ -1,0 +1,1 @@
+Jew who came to [[Ephesus]] from Alexandria, member of synagogue.

@@ -1,0 +1,1 @@
+Collection of various Arab tribes, tribal confederations and small kingdoms described in Abrahamic tradition as being descended from and named after [[Ishmael]]. Can be used to refer to Northern Arabia, Western Arabia (Hejaz), and Central Arabia (Najd).

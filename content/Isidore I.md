@@ -1,0 +1,1 @@
+Ecumenical Patriarch of Constantinople from 1347 to 1350. Isidore was a disciple of [[Gregory Palamas]]. Succeeded by [[Callistus I]].

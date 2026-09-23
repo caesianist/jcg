@@ -1,0 +1,1 @@
+Assistant accompanying [[Paul]] and [[Barnabas]] on their missionary journeys.

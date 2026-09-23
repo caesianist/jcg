@@ -1,0 +1,1 @@
+Father of [[Shallum]], son of [[Hasrah]].

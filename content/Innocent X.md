@@ -1,0 +1,1 @@
+Head of the Catholic Church and ruler of the Papal States from 15 September 1644 to his death, in January 1655. Succeeded by [[Alexander VII]].

@@ -1,0 +1,1 @@
+Roman centurion who escorted [[Paul]] to Rome.

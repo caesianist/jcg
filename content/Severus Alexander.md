@@ -1,0 +1,1 @@
+Roman emperor from 222 until 235 AD. Succeeded by [[Maximinus Thrax]].

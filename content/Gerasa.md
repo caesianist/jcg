@@ -1,0 +1,1 @@
+Jewish town mentioned by the historian [[Flavius Josephus]] as being sacked by the Imperial Roman army around 66 AD.

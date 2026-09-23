@@ -1,0 +1,1 @@
+Roman emperor with [[Pupienus]] for three months in 238. Succeeded by [[Gordian III]].

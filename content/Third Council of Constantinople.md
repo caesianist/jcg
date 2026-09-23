@@ -1,0 +1,1 @@
+Sixth ecumenical council, met in 680–681 and condemned monoenergism and monothelitism as heretical and defined [[Jesus]] Christ as having two energies and two wills (divine and human). After this was the [[Second Council of Nicaea]] for the Catholic Church and the [[Quinisext Council]] for the Eastern Orthodox Church.

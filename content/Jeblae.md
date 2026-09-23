@@ -1,0 +1,1 @@
+Attributed as a servant to [[Abraham]] in [[Testament of Levi]].

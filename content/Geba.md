@@ -1,0 +1,1 @@
+Situated near the border between the northern kingdom of Israel and the southern kingdom of [[Judah]], was an area allotted to the tribe of [[Benjamin]]. In [[1 Samuel 13]], [[Jonathan]] the son of King [[Saul]], attacked the Philistine garrison stationed at Geba, which led to a larger conflict.

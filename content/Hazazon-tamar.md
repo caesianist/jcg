@@ -1,0 +1,1 @@
+Earlier name of [[En-gedi]], is a town in the wilderness of [[Judah]], on the west coast of the Dead Sea in [[Joshua 15]].

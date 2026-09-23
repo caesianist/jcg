@@ -1,0 +1,1 @@
+Governor of Samaria, led forces against [[Maccabaeus]] but was defeated and killed by him, he then took Apollonius’s sword and used it in later battles.

@@ -1,0 +1,1 @@
+Area under the allotment of the tribe of [[Asher]], located somewhere in northern Israel.

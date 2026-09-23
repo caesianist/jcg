@@ -1,0 +1,1 @@
+Bishop of Rome from 24 November 496 to his death on 19 November 498. Succeeded by [[Symmachus]].

@@ -1,0 +1,1 @@
+Post‑exilic member of [[Levi]] and priest.
