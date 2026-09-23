@@ -1,0 +1,1 @@
+Palestinian village southwest of Bethlehem in the West Bank.
