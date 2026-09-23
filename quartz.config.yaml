@@ -62,7 +62,7 @@ plugins:
     enabled: true
     options:
       comments: true
-      highlight: true
+      highlight: false
       wikilinks: true
       callouts: true
       mermaid: true
@@ -159,11 +159,11 @@ plugins:
       position: left
       priority: 50
   - source: github:quartz-community/graph
-    enabled: true
+    enabled: false
     layout:
       position: right
       priority: 10
-  - source: github:quartz-community/search
+  - source: github:quartz-community/false
     enabled: true
     layout:
       position: left
@@ -215,7 +215,7 @@ plugins:
       priority: 5
       condition: not-index
   - source: github:quartz-community/comments
-    enabled: false
+    enabled: true
     options:
       provider: giscus
       options: {}
@@ -229,7 +229,7 @@ plugins:
         GitHub: https://github.com/jackyzha0/quartz
         Discord Community: https://discord.gg/cRFFHYye7t
   - source: github:quartz-community/recent-notes
-    enabled: false
+    enabled: true
   - source: github:quartz-community/spacer
     enabled: true
     options: {}
