@@ -3,9 +3,6 @@ title: JCG
 ---
 **This site is to document the connections between the major books related to Judaism (J), Christianity (C), and Gnosticism (G), and those influenced majorly by such.
 Characters, places, etc, also have their own pages that link within the books.**
-
-# INFO
-
 ## WHEN?
 Started September 9th, 2026. 
 
