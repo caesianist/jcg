@@ -1,0 +1,1 @@
+Ruler of the Seleucid Empire who reigned from late 164 to 162 BC.
