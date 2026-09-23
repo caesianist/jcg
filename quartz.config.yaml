@@ -28,7 +28,7 @@ configuration:
         dark: "#2b2b2b"
         secondary: "#284b63"
         tertiary: "#84a59d"
-        highlight: rgba(143, 159, 169, 0.15)
+        highlight: rgba(100, 140, 170, 0.15)
         textHighlight: "transparent"
       darkMode:
         light: "#161618"
@@ -38,7 +38,7 @@ configuration:
         dark: "#ebebec"
         secondary: "#7b97aa"
         tertiary: "#84a59d"
-        highlight: rgba(143, 159, 169, 0.15)
+        highlight: rgba(100, 140, 170, 0.15)
         textHighlight: "transparent"
 plugins:
   - source: github:quartz-community/created-modified-date
@@ -51,7 +51,7 @@ plugins:
         - filesystem
     order: 10
   - source: github:quartz-community/syntax-highlighting
-    enabled: true
+    enabled: false
     options:
       theme:
         light: github-light
@@ -78,7 +78,7 @@ plugins:
     enabled: true
     order: 40
   - source: github:quartz-community/table-of-contents
-    enabled: true
+    enabled: false
     order: 50
     layout:
       position: right
@@ -172,7 +172,7 @@ plugins:
       groupOptions:
         grow: true
   - source: github:quartz-community/backlinks
-    enabled: true
+    enabled: false
     layout:
       position: right
       priority: 50
