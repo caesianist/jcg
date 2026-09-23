@@ -1,18 +1,18 @@
 ---
 title: JCG
 ---
-This site is to document the connections between the major books related to Judaism (J), Christianity (C), and Gnosticism (G), and those influenced majorly by such.
-Characters, places, etc, also have their own pages that link within the books.
+**This site is to document the connections between the major books related to Judaism (J), Christianity (C), and Gnosticism (G), and those influenced majorly by such.
+Characters, places, etc, also have their own pages that link within the books.**
 
 # INFO
 
-**WHEN?**
+## WHEN?
 Started September 9th, 2026. 
 
-**WHO?**
+## WHO?
 Made by an American agnostic.
 
-**WHY?**
+## WHY?
 Multiple reasons:
 
 a. I wanted to reread religious texts, starting with the Bible to see my newer thoughts on them. 
@@ -21,7 +21,7 @@ b. Boredom, doing these links in notes whilst reading made me more engaged with 
 
 c. Most sites that document this type of thing tend to leave out many entries of insignificant people, my goal is to include every single unique instance of a person/place I can if it is able to be described at all.
 
-**HOW?**
+## HOW?
 The text used for the verses in the books of the biblical canon, uses the NRSVue (New Revised Standard Version, updated edition), so there's some variations of spellings not used elsewhere, and this may affect note count, and may explain why certain spellings of a name you are unable to find on this site.
 
 Of course there are Christians who prefer the KJV, NASB, NIV, ESV, RSV, and so on and on, but since I don't have any specific interpretational lens I am actively trying to apply to the scriptures (such as literalism), I don't have preference for these texts and the NRSVue is generally approved of.
@@ -44,19 +44,9 @@ Locations and people that are highly popular or well documented or known outside
 
 Phrases or relevant titles or designations that go before certain people/locations may/often are not included in the title of a link for that person/location, for example "Kingdom of Judah" isn't its own link, but the "Judah" in that title, would be a link.
 
-**NAVIGATE**
+## NAVIGATE
 
 Below is where all notes end up linking from!
 
-[[Books]] (of Bible, proposed, disputed, translations of the Bible, literature influential to Judaism, Gnosticism, Christianity, etc, has links to characters and people mentioned, etc)
-
-Most linked to notes as well if you wish to check these out too:
-```dataview
-TABLE WITHOUT ID
-file.link AS "Note",
-length(file.inlinks) AS "Links"
-FROM ""
-SORT length(file.inlinks) DESC
-LIMIT 15
-```
-
+## [[Books]]
+(of Bible, proposed, disputed, translations of the Bible, literature influential to Judaism, Gnosticism, Christianity, etc, has links to characters and people mentioned, etc)
